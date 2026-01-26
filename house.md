@@ -20,7 +20,7 @@ bo Ty sam jeden, Panie,
 pozwalasz mi mieszkać bezpiecznie.
 
 łazienka: [Ps 51,9](https://biblia.deon.pl/rozdzial.php?id=884)  
-Pokrop mnie hizopem6, a stanę się czysty,
+Pokrop mnie hizopem, a stanę się czysty,
 obmyj mnie, a nad śnieg wybieleję.
 
 Źródło: https://www.facebook.com/reel/859018743666915

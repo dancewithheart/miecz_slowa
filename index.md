@@ -1,6 +1,4 @@
----
-title: Miecz Ducha - Słowo Boże
----
+{:toc}
 
 # Gniew → Miłość  
   

@@ -1,3 +1,7 @@
+---
+title: Miecz Ducha - Słowo Boże
+---
+
 # Gniew, złość → Miłość
 
 [1 Koryntian 13,4-7](https://biblia.deon.pl/rozdzial.php?id=298)  

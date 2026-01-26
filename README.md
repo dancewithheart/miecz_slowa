@@ -1,1 +1,0 @@
-# miecz_slowa

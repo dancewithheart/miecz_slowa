@@ -1,5 +1,11 @@
 ## Smutek → zaufanie Bogu, pocieszenie, radość
 
+[Wit Chlondowski - Zacznij MEDYTOWAĆ - smutek #5](https://www.youtube.com/watch?v=7U_edzMJyvI&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=5)  
+
+[Jan 16,6-7](https://biblia.deon.pl/rozdzial.php?id=355)  
+Ale ponieważ to wam powiedziałem, smutek napełnił wam serce.  
+Jednakże mówię wam prawdę: Pożyteczne jest dla was moje odejście. Bo jeżeli nie odejdę, Pocieszyciel nie przyjdzie do was. A jeżeli odejdę, poślę Go do was.  
+
 [Ps 42,12](https://biblia.deon.pl/rozdzial.php?id=875)  
 Czemu jesteś zgnębiona, moja duszo,  
 i czemu jęczysz we mnie?  
@@ -59,7 +65,7 @@ Gdy się w moim sercu mnożą niepokoje,
 Twoje pociechy mnie orzeźwiają.
 
 [Jan 16,20](https://biblia.deon.pl/rozdzial.php?id=355)  
-będziecie się smucić, ale smutek wasz zamieni się w radość
+Będziecie się smucić, ale smutek wasz zamieni się w radość
 
 [Jan 16,22](https://biblia.deon.pl/rozdzial.php?id=355)  
 Także i wy teraz doznajecie smutku. Znowu jednak was zobaczę, i rozraduje się serce wasze, a radości waszej nikt wam nie zdoła odebrać.

@@ -1,6 +1,7 @@
 ---
 title: Miecz Ducha - Słowo Boże
 ---
+[![GitHub Repo](https://img.shields.io/badge/GitHub-Repo-black?logo=github)](https://github.com/dancewithheart/miecz_slowa)
 
 ![Pełnia zbroja Boża](/Miecz_Slowa.png)
 

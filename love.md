@@ -68,3 +68,5 @@ Ukochałem cię odwieczną miłością, dlatego też zachowałem dla ciebie łas
 
 [Izajasz 54,10](https://biblia.deon.pl/rozdzial.php?id=526)  
 Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie i nie zachwieje się moje przymierze pokoju, mówi Pan, który ma litość nad tobą.  
+
+![Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie](/Iz54_gory_ustapic_milosc.png)

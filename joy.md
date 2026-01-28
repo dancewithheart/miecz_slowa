@@ -20,14 +20,6 @@ i wybawia złamanych na duchu.
 Płacz nadchodzi z wieczora,  
 a rankiem okrzyki radości.
 
-[Ps 30,11-13](https://biblia.deon.pl/rozdzial.php?id=863)  
-Wysłuchaj, Panie, zmiłuj się nade mną;  
-bądź, Panie, dla mnie wspomożycielem!»  
-Biadania moje zmieniłeś mi w taniec;  
-wór mi rozwiązałeś, opasałeś mnie radością,  
-by moje serce nie milknąc psalm Tobie śpiewało.  
-Boże mój, Panie, będę Cię wysławiał na wieki.
-
 [Lamentacje 3,31-33](https://biblia.deon.pl/rozdzial.php?id=696)  
 Bo nie jest zamiarem Pana  
 odtrącić na wieki.  
@@ -86,3 +78,13 @@ w Jerozolimie doznacie pociechy».
 Na ten widok rozraduje się serce wasze,  
 a kości wasze nabiorą świeżości jak murawa.  
 Ręka Pana da się poznać Jego sługom,
+
+[Ps 30,11-13](https://biblia.deon.pl/rozdzial.php?id=863)  
+Wysłuchaj, Panie, zmiłuj się nade mną;  
+bądź, Panie, dla mnie wspomożycielem!»  
+Biadania moje zmieniłeś mi w taniec;  
+wór mi rozwiązałeś, opasałeś mnie radością,  
+by moje serce nie milknąc psalm Tobie śpiewało.  
+Boże mój, Panie, będę Cię wysławiał na wieki.
+
+![Płacz mój zmieniłeś w taniec](/taniec.png)

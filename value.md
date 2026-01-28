@@ -30,13 +30,19 @@ godne podziwu są Twoje dzieła.
 I dobrze znasz moją duszę,
 
 [Izajasz 49,16](https://biblia.deon.pl/rozdzial.php?id=521)  
-Oto wyryłem cię na obu dłoniach,
+Oto wyryłem cię na obu dłoniach,  
+
+[Efezjan 2,10](https://biblia.deon.pl/rozdzial.php?id=1029)  
+Jesteśmy bowiem Jego dziełem (poematem), stworzeni w Chrystusie Jezusie dla dobrych czynów, które Bóg z góry przygotował, abyśmy je pełnili.  
+
+[Efezjan 2,18-19](https://biblia.deon.pl/rozdzial.php?id=1029)  
+Bo przez Niego jedni i drudzy w jednym Duchu mamy przystęp do Ojca.  
+A więc nie jesteście już obcymi i przychodniami, ale jesteście współobywatelami świętych i domownikami Boga.  
 
 [Rzymian 8,14-17](https://biblia.deon.pl/rozdzial.php?id=277)  
 Albowiem wszyscy ci, których prowadzi Duch Boży, są synami Bożymi.  
 Nie otrzymaliście przecież ducha niewoli, by się znowu pogrążyć w bojaźni, ale otrzymaliście ducha przybrania za synów, w którym możemy wołać: «Abba, Ojcze!»  
 Sam Duch wspiera swym świadectwem naszego ducha, że jesteśmy dziećmi Bożymi.  
-Jeżeli zaś jesteśmy dziećmi, to i dziedzicami: dziedzicami Boga, a współdziedzicami Chrystusa, skoro wspólnie z Nim cierpimy po to, by też wspólnie mieć udział w chwale.
+Jeżeli zaś jesteśmy dziećmi, to i dziedzicami: dziedzicami Boga, a współdziedzicami Chrystusa, skoro wspólnie z Nim cierpimy po to, by też wspólnie mieć udział w chwale.  
 
-[Efezjan 2,10](https://biblia.deon.pl/rozdzial.php?id=1029)  
-Jesteśmy bowiem Jego dziełem (poematem), stworzeni w Chrystusie Jezusie dla dobrych czynów, które Bóg z góry przygotował, abyśmy je pełnili.  
+![Dziećmi, dziedzicami Boga](/dziedzic_krolestwa.png)

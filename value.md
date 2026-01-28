@@ -1,4 +1,4 @@
-# Brak poczucia wartości → dziedzictwo Boże
+## niskie poczucie wartości → dziedzictwo Boże
 
 [Rodzaju 1,27-31](https://biblia.deon.pl/rozdzial.php?id=1)  
 Stworzył więc Bóg człowieka na swój obraz,  
@@ -45,4 +45,4 @@ Nie otrzymaliście przecież ducha niewoli, by się znowu pogrążyć w bojaźni
 Sam Duch wspiera swym świadectwem naszego ducha, że jesteśmy dziećmi Bożymi.  
 Jeżeli zaś jesteśmy dziećmi, to i dziedzicami: dziedzicami Boga, a współdziedzicami Chrystusa, skoro wspólnie z Nim cierpimy po to, by też wspólnie mieć udział w chwale.  
 
-![Dziećmi, dziedzicami Boga](/dziedzic_krolestwa.png)
+![Dziećmi, dziedzicami Boga](/assets/img/dziedzic_krolestwa.png)

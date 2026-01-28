@@ -1,4 +1,4 @@
-## Gniew → Miłość
+## gniew → miłość
 
 [Wit Chlondowski - Zacznij MEDYTOWAĆ - gniew #4](https://www.youtube.com/watch?v=rX3iuTGMe4s&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=4)  
 
@@ -69,4 +69,4 @@ Ukochałem cię odwieczną miłością, dlatego też zachowałem dla ciebie łas
 [Izajasz 54,10](https://biblia.deon.pl/rozdzial.php?id=526)  
 Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie i nie zachwieje się moje przymierze pokoju, mówi Pan, który ma litość nad tobą.  
 
-![Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie](/Iz54_gory_ustapic_milosc.png)
+![Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie](/assets/img/Iz54_gory_ustapic_milosc.png)

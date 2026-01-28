@@ -1,7 +1,9 @@
+## Słowo Boże
+
 [Hbr 4,12](https://biblia.deon.pl/rozdzial.php?id=368)  
 Żywe bowiem jest słowo Boże, skuteczne i ostrzejsze niż wszelki miecz obosieczny, przenikające aż do rozdzielenia duszy i ducha, stawów i szpiku, zdolne osądzić pragnienia i myśli serca.
 
-[Iz 55,10-11](https://biblia.deon.pl/rozdzial.php?id=527)  
+[Izajasz 55,10-11](https://biblia.deon.pl/rozdzial.php?id=527)  
 Zaiste, podobnie jak ulewa i śnieg  
 spadają z nieba  
 i tam nie powracają,  
@@ -26,7 +28,7 @@ Słowa, które Ja wam powiedziałem, są duchem i są życiem.
 [Ef 6,10-18](https://biblia.deon.pl/rozdzial.php?id=1033)  
 W końcu bądźcie mocni w Panu - siłą Jego potęgi. (...) Dlatego weźcie na siebie pełną zbroję Bożą, abyście w dzień zły zdołali się przeciwstawić i ostać, zwalczywszy wszystko. Stańcie więc do walki przepasawszy biodra wasze prawdą i oblókłszy pancerz, którym jest sprawiedliwość4, a obuwszy nogi w gotowość głoszenia dobrej nowiny o pokoju. W każdym położeniu bierzcie wiarę jako tarczę, dzięki której zdołacie zgasić wszystkie rozżarzone pociski Złego. Weźcie też hełm zbawienia i miecz Ducha, to jest słowo Boże - wśród wszelakiej modlitwy i błagania. Przy każdej sposobności módlcie się w Duchu!  
 
-[Ps 1,1-3](https://biblia.deon.pl/rozdzial.php?id=834)  
+[Psalm 1,1-3](https://biblia.deon.pl/rozdzial.php?id=834)  
 Szczęśliwy mąż,  
 który nie idzie za radą występnych,  
 nie wchodzi na drogę grzeszników  
@@ -38,7 +40,7 @@ które wydaje owoc w swoim czasie,
 a liście jego nie więdną:  
 co uczyni, pomyślnie wypada.  
 
-[Ps 119,15-16](https://biblia.deon.pl/rozdzial.php?id=952)  
+[Psalm 119,15-16](https://biblia.deon.pl/rozdzial.php?id=952)  
 Będę rozmyślał o Twych postanowieniach  
 i ścieżki Twoje rozważał.  
 Będę się radował z Twych ustaw:  
@@ -47,7 +49,7 @@ słów Twoich nie zapomnę.
 [Joz 1,8](https://biblia.deon.pl/rozdzial.php?id=1113)  
 Niech ta Księga Prawa będzie zawsze na twych ustach: rozważaj ją w dzień i w nocy, abyś ściśle spełniał wszystko, co w niej jest napisane, bo tylko wtedy powiedzie ci się i okaże się twoja roztropność.  
 
-[Rz 10,17](https://biblia.deon.pl/rozdzial.php?id=279)  
+[Rzymian 10,17](https://biblia.deon.pl/rozdzial.php?id=279)  
 Wiara rodzi się z tego, co się słyszy, tym zaś, co się słyszy, jest słowo Chrystusa.  
 
 [Jk 1,22-25](https://biblia.deon.pl/rozdzial.php?id=1044)  

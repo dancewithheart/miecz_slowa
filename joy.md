@@ -1,4 +1,4 @@
-## Smutek → zaufanie Bogu, pocieszenie, radość
+## smutek → zaufanie Bogu, radość
 
 [Wit Chlondowski - Zacznij MEDYTOWAĆ - smutek #5](https://www.youtube.com/watch?v=7U_edzMJyvI&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=5)  
 
@@ -6,27 +6,35 @@
 Ale ponieważ to wam powiedziałem, smutek napełnił wam serce.  
 Jednakże mówię wam prawdę: Pożyteczne jest dla was moje odejście. Bo jeżeli nie odejdę, Pocieszyciel nie przyjdzie do was. A jeżeli odejdę, poślę Go do was.  
 
-[Ps 42,12](https://biblia.deon.pl/rozdzial.php?id=875)  
+[Psalm 42,12](https://biblia.deon.pl/rozdzial.php?id=875)  
 Czemu jesteś zgnębiona, moja duszo,  
 i czemu jęczysz we mnie?  
 Ufaj Bogu, bo jeszcze Go będę wysławiać:  
-Zbawienie mego oblicza i mojego Boga.
+Zbawienie mego oblicza i mojego Boga.  
 
-[Ps 34,19](https://biblia.deon.pl/rozdzial.php?id=867)  
+[Psalm 34,19](https://biblia.deon.pl/rozdzial.php?id=867)  
 Pan jest blisko skruszonych w sercu  
-i wybawia złamanych na duchu.
+i wybawia złamanych na duchu.  
 
-[Ps 30,6](https://biblia.deon.pl/rozdzial.php?id=863)  
+[Psalm 30,6](https://biblia.deon.pl/rozdzial.php?id=863)  
 Płacz nadchodzi z wieczora,  
 a rankiem okrzyki radości.
 
 [Lamentacje 3,31-33](https://biblia.deon.pl/rozdzial.php?id=696)  
 Bo nie jest zamiarem Pana  
 odtrącić na wieki.  
-Gdyż jeśli uniży, ma litość  
-w dobroci swej niezmiernej;
+Gdyż jeśli dopuści smutek, okaże współczucie
+w czułej miłości swej niezmiernej;  
 
-[Iz 61,1-3](https://biblia.deon.pl/rozdzial.php?id=533)  
+[Lm 3,21-23](https://biblia.deon.pl/rozdzial.php?id=696)  
+Biorę to sobie do serca,  
+dlatego też ufam:  
+Nie wyczerpała się litość Pana,  
+miłość nie zgasła.  
+Odnawia się ona co rano:  
+ogromna Twa wierność.  
+
+[Izajasz 61,1-3](https://biblia.deon.pl/rozdzial.php?id=533)  
 Posłał mnie, by głosić dobrą nowinę ubogim,  
 by opatrywać rany serc złamanych,  
 by zapowiadać wyzwolenie jeńcom  
@@ -79,12 +87,18 @@ Na ten widok rozraduje się serce wasze,
 a kości wasze nabiorą świeżości jak murawa.  
 Ręka Pana da się poznać Jego sługom,
 
-[Ps 30,11-13](https://biblia.deon.pl/rozdzial.php?id=863)  
+[Filipian 4,4-7](https://biblia.deon.pl/rozdzial.php?id=1042)  
+Radujcie się zawsze w Panu; jeszcze raz powtarzam: radujcie się!  
+Niech będzie znana wszystkim ludziom wasza wyrozumiała łagodność: Pan jest blisko!  
+O nic się już zbytnio nie troskajcie, ale w każdej sprawie wasze prośby przedstawiajcie Bogu w modlitwie i błaganiu z dziękczynieniem!  
+A pokój Boży, który przewyższa wszelki umysł, będzie strzegł waszych serc i myśli w Chrystusie Jezusie.
+
+[Psalm 30,11-13](https://biblia.deon.pl/rozdzial.php?id=863)  
 Wysłuchaj, Panie, zmiłuj się nade mną;  
 bądź, Panie, dla mnie wspomożycielem!»  
 Biadania moje zmieniłeś mi w taniec;  
 wór mi rozwiązałeś, opasałeś mnie radością,  
 by moje serce nie milknąc psalm Tobie śpiewało.  
-Boże mój, Panie, będę Cię wysławiał na wieki.
+Boże mój, Panie, będę Cię wysławiał na wieki.  
 
-![Płacz mój zmieniłeś w taniec](/taniec.png)
+![Płacz mój zmieniłeś w taniec](/assets/img/taniec.png)

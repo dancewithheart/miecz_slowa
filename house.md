@@ -23,4 +23,4 @@ pozwalasz mi mieszkać bezpiecznie.
 Pokrop mnie hizopem, a stanę się czysty,
 obmyj mnie, a nad śnieg wybieleję.
 
-Źródło: https://www.facebook.com/reel/859018743666915
+Źródło: [https://www.facebook.com/reel/859018743666915](https://www.facebook.com/reel/859018743666915)

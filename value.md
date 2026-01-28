@@ -1,4 +1,4 @@
-## brak poczucia wartości → dziedzictwo Boże
+## niskie poczucie wartości → dziedzictwo Boże
 
 [Rodzaju 1,27-31](https://biblia.deon.pl/rozdzial.php?id=1)  
 Stworzył więc Bóg człowieka na swój obraz,  

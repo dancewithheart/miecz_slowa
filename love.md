@@ -66,6 +66,17 @@ ani co wysokie, ani co głębokie, ani jakiekolwiek inne stworzenie nie zdoła n
 [Jeremiasz 31,3](https://biblia.deon.pl/rozdzial.php?id=672)  
 Ukochałem cię odwieczną miłością, dlatego też zachowałem dla ciebie łaskawość.  
 
+[Mateusz 5,43-45](https://biblia.deon.pl/rozdzial.php?id=248&werset=43#W43)  
+Słyszeliście, że powiedziano: Będziesz miłował swego bliźniego, a nieprzyjaciela swego będziesz nienawidził.
+A Ja wam powiadam: Miłujcie waszych nieprzyjaciół i módlcie się za tych, którzy was prześladują;
+tak będziecie synami Ojca waszego, który jest w niebie; ponieważ On sprawia, że słońce Jego wschodzi nad złymi i nad dobrymi, i On zsyła deszcz na sprawiedliwych i niesprawiedliwych.
+
+[Mateusz 22,37-40](https://biblia.deon.pl/rozdzial.php?id=265&werset=37#W37)  
+«Będziesz miłował Pana Boga swego całym swoim sercem, całą swoją duszą i całym swoim umysłem.
+To jest największe i pierwsze przykazanie.
+Drugie podobne jest do niego: Będziesz miłował swego bliźniego jak siebie samego.
+Na tych dwóch przykazaniach opiera się całe Prawo i Prorocy».  
+
 [Izajasz 54,10](https://biblia.deon.pl/rozdzial.php?id=526)  
 Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie i nie zachwieje się moje przymierze pokoju, mówi Pan, który ma litość nad tobą.  
 

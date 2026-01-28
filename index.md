@@ -14,3 +14,4 @@ W końcu bądźcie mocni w Panu - siłą Jego potęgi. (...) Dlatego weźcie na 
 * [Brak poczucia wartości → dziedzictwo Boże](./value.md)
 * [Dom](./house.md)
 * [Słowo Boże](./word.md)
+* [Wiara](/faith.md)

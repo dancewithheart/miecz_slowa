@@ -1,7 +1,9 @@
 ## lęk → nadzieja
 
+[Zacznij MEDYTOWAĆ - lęk/strach #3](https://www.youtube.com/watch?v=nP2zMsdJXr0&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=3)
+
 [Ps 27,1](https://biblia.deon.pl/rozdzial.php?id=860)  
-Pan światłem2 i zbawieniem moim:  
+Pan światłem i zbawieniem moim:  
 kogóż mam się lękać?  
 Pan obroną mojego życia:  
 przed kim mam się trwożyć?  

@@ -1,4 +1,4 @@
-## Samotność → Bliskość Boga
+## samotność → bliskość Boga
 
 [Psalm 68,7](https://biblia.deon.pl/rozdzial.php?id=901)  
 Bóg przygotowuje dom dla opuszczonych,  
@@ -13,7 +13,7 @@ bo Ty jesteś ze mną.
 Nie lękaj się, bo Ja jestem z tobą;  
 nie trwóż się, bom Ja twoim Bogiem.  
 Umacniam cię, jeszcze i wspomagam,  
-podtrzymuję cię moją prawicą sprawiedliwą.
+podtrzymuję cię moją prawicą sprawiedliwą.  
 
 [Psalm 139,1-15](https://biblia.deon.pl/rozdzial.php?id=972)  
 Panie, przenikasz i znasz mnie,  
@@ -74,7 +74,7 @@ Na moje życie! - wyrocznia Pana.
 Tak, w tych wszystkich ustroisz się jakby w klejnoty  
 i jak oblubienica opaszesz się nimi.
 
-[Ps 27,9-10](https://biblia.deon.pl/rozdzial.php?id=860)  
+[Psalm 27,9-10](https://biblia.deon.pl/rozdzial.php?id=860)  
 Ty jesteś moją pomocą,  
 więc mnie nie odrzucaj i nie opuszczaj mnie,  
 Boże, moje Zbawienie!  

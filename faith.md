@@ -1,7 +1,9 @@
+## Wiara
+
 [Ew. Marka 11,22](https://biblia.deon.pl/rozdzial.php?id=310#W22)  
 Miejcie wiarę Boga  
 
-[Hebr 12,2](https://biblia.deon.pl/rozdzial.php?id=376#W2)  
+[Hebrajczyków 12,2](https://biblia.deon.pl/rozdzial.php?id=376#W2)  
 Patrzmy na Jezusa, który nam w wierze przewodzi i ją wydoskonala.
 
 [1 Jana 5,4-5](https://biblia.deon.pl/rozdzial.php?id=992)  
@@ -32,7 +34,7 @@ Jeżeli więc ustami swoimi wyznasz, że JEZUS JEST PANEM, i w sercu swoim uwier
 [Rzymian 10,10](https://biblia.deon.pl/rozdzial.php?id=279#W10)  
 Bo sercem przyjęta wiara prowadzi do usprawiedliwienia, a wyznawanie jej ustami - do zbawienia  
 
-[Hebr 11,6](https://biblia.deon.pl/rozdzial.php?id=375#W6)  
+[Hebrajczyków 11,6](https://biblia.deon.pl/rozdzial.php?id=375#W6)  
 Bez wiary zaś nie można podobać się Bogu. Przystępujący bowiem do Boga musi uwierzyć, że [Bóg] jest i że wynagradza tych, którzy Go szukają.  
 
 [Ew Mateusz 17,20](https://biblia.deon.pl/rozdzial.php?id=260#W20)  
@@ -42,4 +44,4 @@ Jeśli będziecie mieć wiarę jak ziarnko gorczycy, powiecie tej górze: "Przes
 Niech zaś prosi z wiarą, a nie wątpi o niczym! Kto bowiem żywi wątpliwości, podobny jest do fali morskiej wzbudzonej wiatrem i miotanej to tu, to tam.  
 Człowiek ten niech nie myśli, że otrzyma cokolwiek od Pana, bo jest mężem chwiejnym, niestałym we wszystkich swych drogach.  
 
-![Kto powie do gory rzuc sie w morze](/Mk11_23_gora_w_morze.png)
+![Kto powie do gory rzuc sie w morze](/assets/img/Mk11_23_gora_w_morze.png)

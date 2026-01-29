@@ -1,3 +1,7 @@
+## Prawda
+
+Greckie słowo: αληθεια (aletheia) [strong 225](https://biblia.oblubienica.eu/wystepowanie/strong/id/225)  
+
 [Jan 14,2](https://biblia.deon.pl/rozdzial.php?id=353)  
 W domu Ojca mego jest mieszkań wiele. Gdyby tak nie było, to bym wam powiedział.  
 

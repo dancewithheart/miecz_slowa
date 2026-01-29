@@ -8,6 +8,9 @@ Tak bowiem Bóg umiłował świat, że Syna swego Jednorodzonego dał, aby każd
 [Rzymian 5,8](https://biblia.deon.pl/rozdzial.php?id=274)  
 Bóg zaś okazuje nam swoją miłość [właśnie] przez to, że Chrystus umarł za nas, gdyśmy byli jeszcze grzesznikami.  
 
+[Marek 1,14-15](https://biblia.deon.pl/rozdzial.php?id=267)  
+Jezus przyszedł do Galilei i głosił Ewangelię Bożą. Mówił: «Czas się wypełnił i bliskie jest królestwo Boże. Zmieniajcie myślenie i wierzcie w Ewangelię!»
+
 [1 Koryntian 15,3-4](https://biblia.deon.pl/rozdzial.php?id=300)  
 Chrystus umarł - zgodnie z Pismem - za nasze grzechy, (...) że zmartwychwstał trzeciego dnia
 
@@ -37,7 +40,7 @@ Złodziej przychodzi tylko po to, aby kraść, zabijać i niszczyć. Ja przyszed
 [Jan 10,14-16](https://biblia.deon.pl/rozdzial.php?id=349)  
 Ja jestem dobrym pasterzem i znam owce moje, a moje Mnie znają, podobnie jak Mnie zna Ojciec, a Ja znam Ojca. Życie moje oddaję za owce. Mam także inne owce, które nie są z tej owczarni. I te muszę przyprowadzić i będą słuchać głosu mego, i nastanie jedna owczarnia, jeden pasterz
 
-[Dzieje 4,11-12](https://biblia.deon.pl/rozdzial.php?id=381) 
+[Dzieje 4,11-12](https://biblia.deon.pl/rozdzial.php?id=381)  
 On jest kamieniem, odrzuconym przez was budujących, tym, który stał się głowicą węgła. I nie ma w żadnym innym zbawienia, gdyż nie dano ludziom pod niebem żadnego innego imienia, w którym moglibyśmy być zbawieni
 
 [Mateusz 28,18-20](https://biblia.deon.pl/rozdzial.php?id=364)  

@@ -1,4 +1,4 @@
-## Wiara
+## zwątpienie → wiara
 
 [Ew. Marka 11,22](https://biblia.deon.pl/rozdzial.php?id=310#W22)  
 Miejcie wiarę Boga  

@@ -1,3 +1,3 @@
 ## sprawiedliwość / usprawiedliwienie
 
-TODDO
+TODDO https://biblia.oblubienica.eu/wystepowanie/strong/id/1343

@@ -101,4 +101,4 @@ wór mi rozwiązałeś, opasałeś mnie radością,
 by moje serce nie milknąc psalm Tobie śpiewało.  
 Boże mój, Panie, będę Cię wysławiał na wieki.  
 
-![Płacz mój zmieniłeś w taniec](/assets/img/taniec.png)
+![Płacz mój zmieniłeś w taniec](/assets/img/Ps_30_taniec.jpg)

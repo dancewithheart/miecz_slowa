@@ -11,7 +11,7 @@ Weźcie na siebie pełną zbroję Bożą, abyście w dzień zły zdołali się p
 [Galatów 5,22-23](https://biblia.deon.pl/rozdzial.php?id=1026)  
 Owocem zaś ducha jest: miłość, radość, pokój, cierpliwość, uprzejmość, dobroć, wierność, łagodność, opanowanie. Przeciw takim [cnotom] nie ma Prawa.  
 
-* [gniew → miłość](./love.md)
+* [gniew → miłość](agape.md)
 * [smutek → zaufanie Bogu, radość](./joy.md)
 * [samotność → bliskość Boga](./closeness.md)  
 * [lęk → nadzieja, bezpieczeństwo](./hope.md)

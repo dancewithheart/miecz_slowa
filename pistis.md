@@ -46,4 +46,4 @@ Jeśli będziecie mieć wiarę jak ziarnko gorczycy, powiecie tej górze: "Przes
 Niech zaś prosi z wiarą, a nie wątpi o niczym! Kto bowiem żywi wątpliwości, podobny jest do fali morskiej wzbudzonej wiatrem i miotanej to tu, to tam.  
 Człowiek ten niech nie myśli, że otrzyma cokolwiek od Pana, bo jest mężem chwiejnym, niestałym we wszystkich swych drogach.  
 
-![Kto powie do gory rzuc sie w morze](/assets/img/Mk11_23_gora_w_morze.png)
+![Kto powie do gory rzuc sie w morze](/assets/img/Mk11_23_gora_w_morze.jpg)

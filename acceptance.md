@@ -1,4 +1,4 @@
-## wstyd → akceptacja, godność
+## wstyd → godność, duma
 
 [Wit Chlondowski - Zacznij MEDYTOWAĆ #11 Wstyd](https://www.youtube.com/watch?v=mv_Zj87MVRw&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=11)  
 

@@ -17,7 +17,8 @@ Owocem zaś ducha jest: miłość, radość, pokój, cierpliwość, uprzejmość
 * [lęk → nadzieja, bezpieczeństwo](elpis.md)
 * [niskie poczucie wartości → dziedzictwo Boże](./value.md)
 * [wstyd → godność, duma](/acceptance.md)
-* [zwątpienie → wiara](/pistis.md)
+* [zwątpienie, niepewność → wiara](/pistis.md)
+* [rozczarowanie, rozgoryczenie → uwielbienie, wdzięczność](eucharisteo.md)
 
 [Mateusz 5,43](https://biblia.deon.pl/rozdzial.php?id=248&werset=43#W43), [Mateusz 19,19](https://biblia.deon.pl/rozdzial.php?id=262&werset=19#W19), [Mateusz 22,39](https://biblia.deon.pl/rozdzial.php?id=248&werset=39#W39), [Marek 12,31](https://biblia.deon.pl/rozdzial.php?id=311&werset=31#W31), [Łukasz 10,27](https://biblia.deon.pl/rozdzial.php?id=325&werset=27#W27), [Kapłańska 19,18](https://biblia.deon.pl/rozdzial.php?id=111&werset=18#W18), [Rzymian 13,9](https://biblia.deon.pl/rozdzial.php?id=282&werset=9#W9), [Galatów 5,14](https://biblia.deon.pl/rozdzial.php?id=1026), [Jakuba 2,8](https://biblia.deon.pl/rozdzial.php?id=1045&werset=8#W8)  
 Będziesz miłował bliźniego swego jak siebie samego.

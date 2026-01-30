@@ -1,5 +1,7 @@
 ## zwątpienie → wiara
 
+Greckie słowo: πιστις (pistis) [strong 4102](https://biblia.oblubienica.eu/wystepowanie/strong/id/4102)  
+
 [Ew. Marka 11,22](https://biblia.deon.pl/rozdzial.php?id=310#W22)  
 Miejcie wiarę Boga  
 

@@ -45,4 +45,4 @@ Nie otrzymaliście przecież ducha niewoli, by się znowu pogrążyć w bojaźni
 Sam Duch wspiera swym świadectwem naszego ducha, że jesteśmy dziećmi Bożymi.  
 Jeżeli zaś jesteśmy dziećmi, to i dziedzicami: dziedzicami Boga, a współdziedzicami Chrystusa, skoro wspólnie z Nim cierpimy po to, by też wspólnie mieć udział w chwale.  
 
-![Dziećmi, dziedzicami Boga](/assets/img/dziedzic_krolestwa.png)
+![Dziećmi, dziedzicami Boga](/assets/img/Rzym_8_dziedzic_krolestwa.jpg)

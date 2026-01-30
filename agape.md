@@ -80,4 +80,4 @@ Na tych dwóch przykazaniach opiera się całe Prawo i Prorocy».
 [Izajasz 54,10](https://biblia.deon.pl/rozdzial.php?id=526)  
 Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie i nie zachwieje się moje przymierze pokoju, mówi Pan, który ma litość nad tobą.  
 
-![Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie](/assets/img/Iz54_gory_ustapic_milosc.png)
+![Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie](/assets/img/Iz54_gory_ustapic_milosc.jpg)

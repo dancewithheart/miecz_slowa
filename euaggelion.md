@@ -18,16 +18,16 @@ Chrystus umarł - zgodnie z Pismem - za nasze grzechy, (...) że zmartwychwstał
 Łaską bowiem jesteście zbawieni przez wiarę. A to pochodzi nie od was, lecz jest darem Boga: nie z uczynków, aby się nikt nie chlubił. Jesteśmy bowiem Jego dziełem, stworzeni w Chrystusie Jezusie dla dobrych czynów, które Bóg z góry przygotował, abyśmy je pełnili.  
 
 [Rzymian 1,16-17](https://biblia.deon.pl/rozdzial.php?id=270)  
-Bo ja nie wstydzę się Ewangelii, jest bowiem ona mocą Bożą ku zbawieniu dla każdego wierzącego, najpierw dla Żyda, potem dla Greka3. W niej bowiem objawia się sprawiedliwość Boża, która od wiary wychodzi i ku wierze prowadzi, jak jest napisane: a sprawiedliwy z wiary żyć będzie.  
+Bo ja nie wstydzę się Ewangelii, jest bowiem ona mocą Bożą ku zbawieniu dla każdego wierzącego, najpierw dla Żyda, potem dla Greka. W niej bowiem objawia się sprawiedliwość Boża, która od wiary wychodzi i ku wierze prowadzi, jak jest napisane: a sprawiedliwy z wiary żyć będzie.  
 
 [Tytus 3,4-7](https://biblia.deon.pl/rozdzial.php?id=1036)  
-Gdy zaś ukazała się dobroć i miłość Zbawiciela, naszego Boga, do ludzi, nie ze względu na sprawiedliwe uczynki, jakie spełniliśmy, lecz z miłosierdzia swego zbawił nas przez obmycie odradzające i odnawiające w Duchu Świętym1, którego wylał na nas obficie przez Jezusa Chrystusa, Zbawiciela naszego, abyśmy, usprawiedliwieni Jego łaską, stali się w nadziei dziedzicami życia wiecznego.  
+Gdy zaś ukazała się dobroć i miłość Zbawiciela, naszego Boga, do ludzi, nie ze względu na sprawiedliwe uczynki, jakie spełniliśmy, lecz z miłosierdzia swego zbawił nas przez obmycie odradzające i odnawiające w Duchu Świętym, którego wylał na nas obficie przez Jezusa Chrystusa, Zbawiciela naszego, abyśmy, usprawiedliwieni Jego łaską, stali się w nadziei dziedzicami życia wiecznego.  
 
 [2 Kor 5,17-19](https://biblia.deon.pl/rozdzial.php?id=999)  
 Jeżeli więc ktoś pozostaje w Chrystusie, jest nowym stworzeniem. To, co dawne, minęło, a oto stało się nowe. Wszystko zaś to pochodzi od Boga, który pojednał nas z sobą przez Chrystusa i zlecił na posługę jednania. Albowiem w Chrystusie Bóg jednał z sobą świat, nie poczytując ludziom ich grzechów, nam zaś przekazując słowo jednania.
 
 [Rzymian 8,1-3](https://biblia.deon.pl/rozdzial.php?id=277)  
-Teraz jednak dla tych, którzy są w Chrystusie Jezusie1, nie ma już potępienia. Albowiem prawo Ducha, który daje życie w Chrystusie Jezusie, wyzwoliło cię spod prawa grzechu i śmierci. Co bowiem było niemożliwe dla Prawa, ponieważ ciało2 czyniło je bezsilnym, [tego dokonał Bóg]. 
+Teraz jednak dla tych, którzy są w Chrystusie Jezusie, nie ma już potępienia. Albowiem prawo Ducha, który daje życie w Chrystusie Jezusie, wyzwoliło cię spod prawa grzechu i śmierci. Co bowiem było niemożliwe dla Prawa, ponieważ ciało czyniło je bezsilnym, [tego dokonał Bóg]. 
 
 [Marek 16,15-18](https://biblia.deon.pl/rozdzial.php?id=315)  
 Idźcie na cały świat i głoście Ewangelię wszelkiemu stworzeniu!

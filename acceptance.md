@@ -3,7 +3,7 @@
 [Wit Chlondowski - Zacznij MEDYTOWAĆ #11 Wstyd](https://www.youtube.com/watch?v=mv_Zj87MVRw&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=11)  
 
 [Rzymian 8,1](https://biblia.deon.pl/rozdzial.php?id=277)  
-Teraz jednak dla tych, którzy są w Chrystusie Jezusie1, nie ma już potępienia.  
+Teraz jednak dla tych, którzy są w Chrystusie Jezusie, nie ma już potępienia.  
 
 [Izajasz 1,18](https://biblia.deon.pl/rozdzial.php?id=473)   
 Choćby wasze grzechy były jak szkarłat,  
@@ -41,7 +41,7 @@ Choćby mnie opuścili ojciec mój i matka,
 to jednak Pan mnie przygarnie.  
 
 [Izajasz 61,7](https://biblia.deon.pl/rozdzial.php?id=533)  
-Ponieważ hańba ich3 była zdwojona,  
+Ponieważ hańba ich była zdwojona,  
 poniżenie i zniewagi były ich udziałem,  
 przeto w swej ziemi odziedziczą wszystko w dwójnasób  
 i zażywać będą wiecznego szczęścia.   
@@ -58,13 +58,13 @@ Pewien człowiek miał dwóch synów.
 Młodszy z nich rzekł do ojca: "Ojcze, daj mi część majątku, która na mnie przypada". Podzielił więc majątek między nich. 
 Niedługo potem młodszy syn, zabrawszy wszystko, odjechał w dalekie strony i tam roztrwonił swój majątek, żyjąc rozrzutnie. 
 A gdy wszystko wydał, nastał ciężki głód w owej krainie i on sam zaczął cierpieć niedostatek.
-Poszedł i przystał do jednego z obywateli owej krainy, a ten posłał go na swoje pola żeby pasł świnie4. 
+Poszedł i przystał do jednego z obywateli owej krainy, a ten posłał go na swoje pola żeby pasł świnie. 
 Pragnął on napełnić swój żołądek strąkami, którymi żywiły się świnie, lecz nikt mu ich nie dawał. 
 Wtedy zastanowił się i rzekł: Iluż to najemników mojego ojca ma pod dostatkiem chleba, a ja tu z głodu ginę. 
-Zabiorę się i pójdę do mego ojca, i powiem mu: Ojcze, zgrzeszyłem przeciw Bogu5 i względem ciebie; 
+Zabiorę się i pójdę do mego ojca, i powiem mu: Ojcze, zgrzeszyłem przeciw Bogu i względem ciebie; 
 już nie jestem godzien nazywać się twoim synem: uczyń mię choćby jednym z najemników. 
 Wybrał się więc i poszedł do swojego ojca. A gdy był jeszcze daleko, ujrzał go jego ojciec i wzruszył się głęboko; wybiegł naprzeciw niego, rzucił mu się na szyję i ucałował go. 
-A syn rzekł do niego: "Ojcze, zgrzeszyłem przeciw Bogu6 i względem ciebie, już nie jestem godzien nazywać się twoim synem". 
+A syn rzekł do niego: "Ojcze, zgrzeszyłem przeciw Bogu i względem ciebie, już nie jestem godzien nazywać się twoim synem". 
 Lecz ojciec rzekł do swoich sług: "Przynieście szybko najlepszą szatę i ubierzcie go; dajcie mu też pierścień na rękę i sandały na nogi! 
 Przyprowadźcie utuczone cielę i zabijcie: będziemy ucztować i bawić się,
 ponieważ ten mój syn był umarły, a znów ożył; zaginął, a odnalazł się".  

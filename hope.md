@@ -1,4 +1,4 @@
-## lęk → nadzieja
+## lęk → nadzieja, bezpieczeństwo
 
 [Wit Chlondowski - Zacznij MEDYTOWAĆ - lęk/strach #3](https://www.youtube.com/watch?v=nP2zMsdJXr0&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=3)
 

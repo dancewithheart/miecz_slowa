@@ -14,7 +14,7 @@ Owocem zaś ducha jest: miłość, radość, pokój, cierpliwość, uprzejmość
 * [gniew → miłość](./love.md)
 * [smutek → zaufanie Bogu, radość](./joy.md)
 * [samotność → bliskość Boga](./closeness.md)  
-* [lęk → nadzieja](./hope.md)
+* [lęk → nadzieja, bezpieczeństwo](./hope.md)
 * [niskie poczucie wartości → dziedzictwo Boże](./value.md)
 * [wstyd → akceptacja, godność](/acceptance.md)
 * [zwątpienie → wiara](/pistis.md)

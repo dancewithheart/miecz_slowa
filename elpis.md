@@ -2,6 +2,8 @@
 
 [Wit Chlondowski - Zacznij MEDYTOWAĆ - lęk/strach #3](https://www.youtube.com/watch?v=nP2zMsdJXr0&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=3)
 
+Greckie słowo: ελπις (elpis) [strong 1680](https://biblia.oblubienica.eu/wystepowanie/strong/id/1680)  
+
 [Psalm 23,4-5](https://biblia.deon.pl/rozdzial.php?id=856)  
 Chociażbym chodził ciemną doliną,  
 zła się nie ulęknę,  

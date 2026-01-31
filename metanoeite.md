@@ -25,7 +25,7 @@ Powiadam wam: Tak samo w niebie większa będzie radość z jednego grzesznika, 
 Jeśli brat twój zawini, upomnij go; i jeśli żałuje, przebacz mu! I jeśliby siedem razy na dzień zawinił przeciw tobie i siedem razy zwróciłby się do ciebie, mówiąc: "Żałuję tego", przebacz mu!» 
 
 [Dzieje 2,32-41](https://biblia.deon.pl/rozdzial.php?id=379)  
-Tego właśnie Jezusa wskrzesił Bóg, a my wszyscy jesteśmy tego świadkami. 33 Wyniesiony na prawicę Boga, otrzymał od Ojca obietnicę Ducha Świętego i zesłał Go, 34 jak to sami widzicie i słyszycie. (...)
+Tego właśnie Jezusa wskrzesił Bóg, a my wszyscy jesteśmy tego świadkami. Wyniesiony na prawicę Boga, otrzymał od Ojca obietnicę Ducha Świętego i zesłał Go, 34 jak to sami widzicie i słyszycie. (...)
 Niech więc cały dom Izraela wie z niewzruszoną pewnością, że tego Jezusa, którego wyście ukrzyżowali, uczynił Bóg i Panem, i Mesjaszem».
 Gdy to usłyszeli, przejęli się do głębi serca: «Cóż mamy czynić, bracia?» - zapytali Piotra i pozostałych Apostołów. «**Nawróćcie się** - powiedział do nich Piotr - i niech każdy z was ochrzci się w imię Jezusa Chrystusa na odpuszczenie grzechów waszych, a weźmiecie w darze Ducha Świętego. Bo dla was jest obietnica i dla dzieci waszych, i dla wszystkich, którzy są daleko, a których powoła Pan Bóg nasz».
 W wielu też innych słowach dawał świadectwo i napominał: «Ratujcie się spośród tego przewrotnego pokolenia!». Ci więc, którzy przyjęli jego naukę, zostali ochrzczeni. I przyłączyło się owego dnia około trzech tysięcy dusz. 

@@ -36,6 +36,9 @@ Jeżeli więc ustami swoimi wyznasz, że JEZUS JEST PANEM, i w sercu swoim uwier
 [Rzymian 10,10](https://biblia.deon.pl/rozdzial.php?id=279#W10)  
 Bo sercem przyjęta wiara prowadzi do usprawiedliwienia, a wyznawanie jej ustami - do zbawienia  
 
+[Rzymian 10,17](https://biblia.deon.pl/rozdzial.php?id=279#W17)  
+Wiara rodzi się z tego, co się słyszy, tym zaś, co się słyszy, jest słowo Chrystusa.  
+
 [Hebrajczyków 11,6](https://biblia.deon.pl/rozdzial.php?id=375#W6)  
 Bez wiary zaś nie można podobać się Bogu. Przystępujący bowiem do Boga musi uwierzyć, że [Bóg] jest i że wynagradza tych, którzy Go szukają.  
 

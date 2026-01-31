@@ -19,6 +19,7 @@ Owocem zaś ducha jest: [miłość](/agape.md), [radość](/chara.md), [pokój](
 * [wstyd → godność, duma](/acceptance.md)
 * [zwątpienie, niepewność → wiara](/pistis.md)
 * [rozczarowanie, rozgoryczenie → uwielbienie, wdzięczność](/eucharisteo.md)
+* [uzależnienie, zniewolenie błędami, grzechem → wolność, uwolnienie](/eleutheros.md)
 
 [Mateusz 5,43](https://biblia.deon.pl/rozdzial.php?id=248&werset=43#W43), [Mateusz 19,19](https://biblia.deon.pl/rozdzial.php?id=262&werset=19#W19), [Mateusz 22,39](https://biblia.deon.pl/rozdzial.php?id=248&werset=39#W39), [Marek 12,31](https://biblia.deon.pl/rozdzial.php?id=311&werset=31#W31), [Łukasz 10,27](https://biblia.deon.pl/rozdzial.php?id=325&werset=27#W27), [Kapłańska 19,18](https://biblia.deon.pl/rozdzial.php?id=111&werset=18#W18), [Rzymian 13,9](https://biblia.deon.pl/rozdzial.php?id=282&werset=9#W9), [Galatów 5,14](https://biblia.deon.pl/rozdzial.php?id=1026), [Jakuba 2,8](https://biblia.deon.pl/rozdzial.php?id=1045&werset=8#W8)  
 Będziesz [miłował](/agape.md) bliźniego swego jak siebie samego.
@@ -30,7 +31,7 @@ Ja przyszedłem po to, aby [owce] miały [życie](/zoen.md) i miały je w obfito
 Przemieniajcie się przez [odnawianie umysłu](/metanoeite.md), abyście umieli rozpoznać, jaka jest wola Boża: co jest dobre, co Bogu przyjemne i co doskonałe.  
 
 [Jan 8,31](https://biblia.deon.pl/rozdzial.php?id=347)  
-Jeżeli będziecie trwać w nauce mojej, będziecie prawdziwie moimi uczniami i poznacie [prawdę](/aletheia.md), a [prawda](/aletheia.md) was wyzwoli.  
+Jeżeli będziecie trwać w nauce mojej, będziecie prawdziwie moimi uczniami i poznacie [prawdę](/aletheia.md), a [prawda](/aletheia.md) was [wyzwoli](/eleutheros.md).  
 
 [1 Jana 4,9-11](https://biblia.deon.pl/rozdzial.php?id=991)  
 W tym objawiła się [miłość](/agape.md) Boga ku nam,  

@@ -2,6 +2,8 @@
 
 [Wit Chlondowski - Zacznij MEDYTOWAĆ - smutek #5](https://www.youtube.com/watch?v=7U_edzMJyvI&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=5)  
 
+Greckie słowo: χαρα (chara) [strong 5479](https://biblia.oblubienica.eu/wystepowanie/strong/id/5479)  
+
 [Jan 16,6-7](https://biblia.deon.pl/rozdzial.php?id=355)  
 Ale ponieważ to wam powiedziałem, smutek napełnił wam serce.  
 Jednakże mówię wam prawdę: Pożyteczne jest dla was moje odejście. Bo jeżeli nie odejdę, Pocieszyciel nie przyjdzie do was. A jeżeli odejdę, poślę Go do was.  
@@ -26,7 +28,7 @@ odtrącić na wieki.
 Gdyż jeśli dopuści smutek, okaże współczucie
 w czułej miłości swej niezmiernej;  
 
-[Lm 3,21-23](https://biblia.deon.pl/rozdzial.php?id=696)  
+[Lamentacje 3,21-23](https://biblia.deon.pl/rozdzial.php?id=696)  
 Biorę to sobie do serca,  
 dlatego też ufam:  
 Nie wyczerpała się litość Pana,  
@@ -92,6 +94,9 @@ Radujcie się zawsze w Panu; jeszcze raz powtarzam: radujcie się!
 Niech będzie znana wszystkim ludziom wasza wyrozumiała łagodność: Pan jest blisko!  
 O nic się już zbytnio nie troskajcie, ale w każdej sprawie wasze prośby przedstawiajcie Bogu w modlitwie i błaganiu z dziękczynieniem!  
 A pokój Boży, który przewyższa wszelki umysł, będzie strzegł waszych serc i myśli w Chrystusie Jezusie.
+
+[1 Tesaloniczan 5,16-18](https://biblia.deon.pl/rozdzial.php?id=1000)  
+Zawsze się radujcie, nieustannie się módlcie! W każdym położeniu dziękujcie, taka jest bowiem wola Boża w Jezusie Chrystusie względem was.
 
 [Psalm 30,11-13](https://biblia.deon.pl/rozdzial.php?id=863)  
 Wysłuchaj, Panie, zmiłuj się nade mną;  

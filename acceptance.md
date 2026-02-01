@@ -5,16 +5,25 @@
 [Rzymian 8,1](https://biblia.deon.pl/rozdzial.php?id=277)  
 Teraz jednak dla tych, którzy są w Chrystusie Jezusie, nie ma już potępienia.  
 
-[Izajasz 1,18](https://biblia.deon.pl/rozdzial.php?id=473)   
+[Rzymian 8,14-16](https://biblia.deon.pl/rozdzial.php?id=277)  
+Wszyscy ci, których prowadzi Duch Boży, są synami Bożymi. 
+Nie otrzymaliście przecież ducha [niewoli](/eleutheros.md), by się znowu pogrążyć w bojaźni, ale
+otrzymaliście ducha przybrania za synów,  
+w którym możemy wołać: «Abba, Ojcze!»  
+Sam Duch wspiera swym świadectwem naszego ducha, że jesteśmy dziećmi Bożym.  
+Jeżeli zaś jesteśmy dziećmi, to i dziedzicami: dziedzicami Boga, a współdziedzicami Chrystusa,
+skoro wspólnie z Nim cierpimy po to, by też wspólnie mieć udział w chwale.  
+
+[Izajasz 1,18](https://biblia.deon.pl/rozdzial.php?id=473)  
 Choćby wasze grzechy były jak szkarłat,  
 jak śnieg wybieleją.  
 
 [Psalm 34,6](https://biblia.deon.pl/rozdzial.php?id=867)  
-Spójrzcie na Niego, promieniejcie radością,  
+Spójrzcie na Niego, promieniejcie [radością](/chara.md),  
 a oblicza wasze nie zaznają wstydu.  
 
 [Izajasz 54,4](https://biblia.deon.pl/rozdzial.php?id=526)  
-Nie lękaj się, bo już się nie zawstydzisz,  
+[Nie lękaj się](/elpis.md), bo już się nie zawstydzisz,  
 nie wstydź się, bo już nie doznasz pohańbienia.  
 Raczej zapomnisz o wstydzie twej młodości.  
 I nie wspomnisz już hańby twego wdowieństwa.  
@@ -70,7 +79,7 @@ Przyprowadźcie utuczone cielę i zabijcie: będziemy ucztować i bawić się,
 ponieważ ten mój syn był umarły, a znów ożył; zaginął, a odnalazł się".  
 
 [Izajasz 43,1](https://biblia.deon.pl/rozdzial.php?id=515)  
-Nie lękaj się, bo cię wykupiłem,  
+[Nie lękaj się](/elpis.md), bo cię wykupiłem,  
 wezwałem cię po imieniu; tyś moim!   
 
 [Ps 8,5-7](https://biblia.deon.pl/rozdzial.php?id=841)  
@@ -90,3 +99,7 @@ Raczej cię nazwą "Moje <w niej> upodobanie",
 a krainę twoją "Poślubiona".  
 Albowiem spodobałaś się Panu  
 i twoja kraina otrzyma męża.   
+
+[1 Koryntian 6,19-20](https://biblia.deon.pl/rozdzial.php?id=291)  
+Czyż nie wiecie, że ciało wasze jest świątynią Ducha Świętego, który w was jest, a którego macie od Boga, i że już nie należycie do samych siebie?
+Za [wielką] bowiem cenę zostaliście nabyci. Chwalcie więc Boga w waszym ciele!

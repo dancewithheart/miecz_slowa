@@ -5,7 +5,7 @@ title: Miecz Ducha - Słowo Boże
 
 ![Pełnia zbroja Boża](/assets/img/Ef_6_miecz_slowa.jpg)
 
-[Ef 6,10-18](https://biblia.deon.pl/rozdzial.php?id=1033)  
+[Efezjan 6,10-18](https://biblia.deon.pl/rozdzial.php?id=1033)  
 Weźcie na siebie pełną zbroję Bożą, abyście w dzień zły zdołali się przeciwstawić i ostać, zwalczywszy wszystko. Stańcie więc do walki przepasawszy **biodra** wasze [prawdą](/aletheia.md) i oblókłszy **pancerz**, którym jest [sprawiedliwość](/dikaiosyne.md), a obuwszy **nogi** w gotowość głoszenia [dobrej nowiny](/euaggelion.md) o [pokoju](/eirene.md). W każdym położeniu bierzcie [wiarę](/pistis.md) jako **tarczę**, dzięki której zdołacie zgasić wszystkie rozżarzone pociski Złego. Weźcie też **hełm** [zbawienia](/sozo.md) i **miecz** [Ducha](/pneuma.md), to jest [słowo Boże](/rhema.md) - wśród wszelakiej modlitwy
 
 [Galatów 5,22-23](https://biblia.deon.pl/rozdzial.php?id=1026)  
@@ -63,6 +63,6 @@ Błogosławieni, którzy łakną i pragną [sprawiedliwości](/dikaiosyne.md), a
 Błogosławieni miłosierni, albowiem oni miłosierdzia dostąpią.  
 Błogosławieni czystego serca, albowiem oni Boga oglądać będą.  
 Błogosławieni, którzy wprowadzają [pokój](/eirene.md), albowiem oni będą nazwani [synami Bożymi](/value.md).  
-Błogosławieni, którzy cierpią prześladowanie dla sprawiedliwości, albowiem do nich należy [królestwo niebieskie](/basileia.md).  
+Błogosławieni, którzy cierpią prześladowanie dla [sprawiedliwości](/dikaiosyne.md), albowiem do nich należy [królestwo niebieskie](/basileia.md).  
 Błogosławieni jesteście, gdy [ludzie] wam urągają i prześladują was, i gdy z mego powodu mówią kłamliwie wszystko złe na was.  
 Cieszcie się i radujcie, albowiem wasza nagroda wielka jest w niebie. Tak bowiem prześladowali proroków, którzy byli przed wami.  

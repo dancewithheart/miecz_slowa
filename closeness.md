@@ -6,14 +6,14 @@ a jeńców prowadzi ku pomyślności
 
 [Psalm 23,4](https://biblia.deon.pl/rozdzial.php?id=856)  
 Chociażbym chodził ciemną doliną,  
-zła się nie ulęknę,  
+zła się [nie ulęknę](/elpis.md),  
 bo Ty jesteś ze mną.
 
 [Izajasz 41,10](https://biblia.deon.pl/rozdzial.php?id=513)  
-Nie lękaj się, bo Ja jestem z tobą;  
+[Nie lękaj się](/elpis.md), bo Ja jestem z tobą;  
 nie trwóż się, bom Ja twoim Bogiem.  
 Umacniam cię, jeszcze i wspomagam,  
-podtrzymuję cię moją prawicą sprawiedliwą.  
+podtrzymuję cię moją prawicą [sprawiedliwą](/dikaiosyne.md).  
 
 [Psalm 139,1-15](https://biblia.deon.pl/rozdzial.php?id=972)  
 Panie, przenikasz i znasz mnie,  
@@ -50,13 +50,13 @@ kiedy w ukryciu powstawałem,
 utkany w głębi ziemi.
 
 [Jozuego 1,9](https://biblia.deon.pl/rozdzial.php?id=1113)  
-Czyż ci nie rozkazałem: Bądź mężny i mocny? Nie bój się i nie lękaj, ponieważ z tobą jest Pan, Bóg twój, wszędzie, gdziekolwiek pójdziesz»
+Czyż ci nie rozkazałem: Bądź mężny i mocny? Nie bój się i [nie lękaj](/elpis.md), ponieważ z tobą jest Pan, Bóg twój, wszędzie, gdziekolwiek pójdziesz»
 
 [Hebrajczyków 13,5](https://biblia.deon.pl/rozdzial.php?id=377)  
 Nie opuszczę cię ani pozostawię
 
 [Powtórzonego Prawa 31,6](https://biblia.deon.pl/rozdzial.php?id=232&werset=6#W6)  
-Bądź mężny i mocny, nie lękaj się, nie bój się ich, gdyż Pan, Bóg twój, idzie z tobą, nie opuści cię i nie porzuci»
+Bądź mężny i mocny, [nie lękaj się](/elpis.md), nie bój się ich, gdyż Pan, Bóg twój, idzie z tobą, nie opuści cię i nie porzuci»
 
 [Izajasz 49,15–18](https://biblia.deon.pl/rozdzial.php?id=521)  
 Czyż może niewiasta zapomnieć o swym niemowlęciu,  

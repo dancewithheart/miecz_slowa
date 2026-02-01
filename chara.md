@@ -26,20 +26,20 @@ a rankiem okrzyki radości.
 Bo nie jest zamiarem Pana  
 odtrącić na wieki.  
 Gdyż jeśli dopuści smutek, okaże współczucie
-w czułej miłości swej niezmiernej;  
+w czułej [miłości](/agape.md) swej niezmiernej;  
 
 [Lamentacje 3,21-23](https://biblia.deon.pl/rozdzial.php?id=696)  
 Biorę to sobie do serca,  
 dlatego też ufam:  
 Nie wyczerpała się litość Pana,  
-miłość nie zgasła.  
+[miłość](/agape.md) nie zgasła.  
 Odnawia się ona co rano:  
 ogromna Twa wierność.  
 
 [Izajasz 61,1-3](https://biblia.deon.pl/rozdzial.php?id=533)  
-Posłał mnie, by głosić dobrą nowinę ubogim,  
+Posłał mnie, by głosić [dobrą nowinę](/euaggelion.md) ubogim,  
 by opatrywać rany serc złamanych,  
-by zapowiadać wyzwolenie jeńcom  
+by zapowiadać [wyzwolenie](/eleutheros.md) jeńcom  
 i więźniom swobodę;  
 aby obwieszczać rok łaski Pańskiej,  
 i dzień pomsty naszego Boga;  
@@ -49,7 +49,7 @@ aby im wieniec dać zamiast popiołu,
 olejek radości zamiast szaty smutku,  
 pieśń chwały zamiast zgnębienia na duchu.
 
-[2 Kor 1,3-5](https://biblia.deon.pl/rozdzial.php?id=995)  
+[2 Koryntian 1,3-5](https://biblia.deon.pl/rozdzial.php?id=995)  
 Błogosławiony Bóg i Ojciec Pana naszego Jezusa Chrystusa, Ojciec miłosierdzia i Bóg wszelkiej pociechy,  
 Ten, który nas pociesza w każdym naszym utrapieniu, byśmy sami mogli pocieszać tych, co są w jakiejkolwiek udręce, pociechą, której doznajemy od Boga.  
 Jak bowiem obfitują w nas cierpienia Chrystusa, tak też wielkiej doznajemy przez Chrystusa pociechy.

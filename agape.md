@@ -9,7 +9,7 @@ Gniewajcie się, a nie grzeszcie: niech nad waszym gniewem nie zachodzi słońce
 Niech zniknie spośród was wszelka gorycz, uniesienie, gniew, wrzaskliwość, znieważenie - wraz z wszelką złością.  
 
 [Psalm 37,1–2](https://biblia.deon.pl/rozdzial.php?id=870)  
-Nie unoś się gniewem z powodu złoczyńców ani nie zazdrość niesprawiedliwym,  
+Nie unoś się gniewem z powodu złoczyńców ani nie zazdrość [niesprawiedliwym](/dikaiosyne.md),  
 bo znikną tak prędko jak trawa i zwiędną jak świeża zieleń.
 
 [Psalm 37,8–9](https://biblia.deon.pl/rozdzial.php?id=870)  
@@ -36,19 +36,27 @@ nie dopuszcza się bezwstydu,
 nie szuka swego,  
 nie unosi się gniewem,  
 nie pamięta złego;  
-nie cieszy się z niesprawiedliwości,  
+nie cieszy się z [niesprawiedliwości](/dikaiosyne.md),  
 lecz współweseli się z [prawdą](/aletheia.md).  
 Wszystko znosi,  
 wszystkiemu [wierzy](/pistis.md),  
-we wszystkim pokłada nadzieję,  
+we wszystkim pokłada [nadzieję](/elpis.md),  
 wszystko przetrzyma.
 
-[Kolosan 3, 12-14](https://biblia.deon.pl/rozdzial.php?id=1394)  
+[Kolosan 3, 12-17](https://biblia.deon.pl/rozdzial.php?id=1394)  
 Jako więc wybrańcy Boży - święci i umiłowani - obleczcie się w serdeczne miłosierdzie,  
 dobroć, pokorę, cichość, cierpliwość,  
 znosząc jedni drugich i wybaczając sobie nawzajem,  
 jeśliby miał ktoś zarzut przeciw drugiemu: jak Pan wybaczył wam, tak i wy!  
-Na to zaś wszystko [przyobleczcie] miłość, która jest więzią doskonałości.
+Na to zaś wszystko [przyobleczcie] [miłość](/agape.md), która jest więzią doskonałości.
+A sercami waszymi niech rządzi [pokój](/eirene.md) Chrystusowy,
+do którego też zostaliście wezwani w jednym Ciele.
+I bądźcie [wdzięczni](/eucharisteo.md)!
+[Słowo](/rhema.md) Chrystusa niech w was przebywa z [całym swym] bogactwem:
+z wszelką mądrością nauczajcie i napominajcie samych siebie przez psalmy, hymny,
+pieśni pełne ducha, pod wpływem łaski śpiewając Bogu w waszych sercach.
+I wszystko, cokolwiek działacie słowem lub czynem, wszystko [czyńcie] w imię Pana Jezusa,
+[dziękując](/eucharisteo.md) Bogu Ojcu przez Niego.
 
 [1 Jana 4,9-11](https://biblia.deon.pl/rozdzial.php?id=991)  
 W tym objawiła się miłość Boga ku nam,  
@@ -71,7 +79,7 @@ Ukochałem cię odwieczną miłością, dlatego też zachowałem dla ciebie łas
 [Mateusz 5,43-45](https://biblia.deon.pl/rozdzial.php?id=248&werset=43#W43)  
 Słyszeliście, że powiedziano: Będziesz miłował swego bliźniego, a nieprzyjaciela swego będziesz nienawidził.
 A Ja wam powiadam: Miłujcie waszych nieprzyjaciół i módlcie się za tych, którzy was prześladują;
-tak będziecie synami Ojca waszego, który jest w niebie; ponieważ On sprawia, że słońce Jego wschodzi nad złymi i nad dobrymi, i On zsyła deszcz na sprawiedliwych i niesprawiedliwych.
+tak będziecie synami Ojca waszego, który jest w niebie; ponieważ On sprawia, że słońce Jego wschodzi nad złymi i nad dobrymi, i On zsyła deszcz na [sprawiedliwych](/dikaiosyne.md) i niesprawiedliwych.
 
 [Mateusz 22,37-40](https://biblia.deon.pl/rozdzial.php?id=265&werset=37#W37)  
 «Będziesz miłował Pana Boga swego całym swoim sercem, całą swoją duszą i całym swoim umysłem.
@@ -80,7 +88,7 @@ Drugie podobne jest do niego: Będziesz miłował swego bliźniego jak siebie sa
 Na tych dwóch przykazaniach opiera się całe Prawo i Prorocy».  
 
 [Galatów 5,5-6](https://biblia.deon.pl/rozdzial.php?id=1026)  
-My zaś z pomocą Ducha, na zasadzie [wiary](/pistis.md) wyczekujemy spodziewanej sprawiedliwości.  
+My zaś z pomocą Ducha, na zasadzie [wiary](/pistis.md) wyczekujemy spodziewanej [sprawiedliwości](/dikaiosyne.md).  
 Albowiem w Chrystusie Jezusie ani obrzezanie, ani jego brak nie mają żadnego znaczenia, tylko wiara, która działa przez [miłość](/agape.md).
 
 

@@ -37,9 +37,9 @@ nie szuka swego,
 nie unosi się gniewem,  
 nie pamięta złego;  
 nie cieszy się z niesprawiedliwości,  
-lecz współweseli się z prawdą.  
+lecz współweseli się z [prawdą](/aletheia.md).  
 Wszystko znosi,  
-wszystkiemu wierzy,  
+wszystkiemu [wierzy](/pistis.md),  
 we wszystkim pokłada nadzieję,  
 wszystko przetrzyma.
 
@@ -53,7 +53,7 @@ Na to zaś wszystko [przyobleczcie] miłość, która jest więzią doskonałoś
 [1 Jana 4,9-11](https://biblia.deon.pl/rozdzial.php?id=991)  
 W tym objawiła się miłość Boga ku nam,  
 że zesłał Syna swego Jednorodzonego na świat,  
-abyśmy życie mieli dzięki Niemu.  
+abyśmy [życie](/zoen.md) mieli dzięki Niemu.  
 W tym przejawia się miłość,  
 że nie my umiłowaliśmy Boga,  
 ale że On sam nas umiłował  
@@ -62,7 +62,7 @@ Umiłowani, jeśli Bóg tak nas umiłował,
 to i my winniśmy się wzajemnie miłować.
 
 [Rzymian 8,38-39](https://biblia.deon.pl/rozdzial.php?id=277)  
-I jestem pewien, że ani śmierć, ani życie, ani aniołowie, ani Zwierzchności, ani rzeczy teraźniejsze, ani przyszłe, ani Moce,  
+I jestem pewien, że ani śmierć, ani [życie](/zoen.md), ani aniołowie, ani Zwierzchności, ani rzeczy teraźniejsze, ani przyszłe, ani Moce,  
 ani co wysokie, ani co głębokie, ani jakiekolwiek inne stworzenie nie zdoła nas odłączyć od miłości Boga, która jest w Chrystusie Jezusie, Panu naszym.
 
 [Jeremiasz 31,3](https://biblia.deon.pl/rozdzial.php?id=672)  

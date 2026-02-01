@@ -39,7 +39,7 @@ ogromna Twa wierność.
 [Izajasz 61,1-3](https://biblia.deon.pl/rozdzial.php?id=533)  
 Posłał mnie, by głosić [dobrą nowinę](/euaggelion.md) ubogim,  
 by opatrywać rany serc złamanych,  
-by zapowiadać wyzwolenie jeńcom  
+by zapowiadać [wyzwolenie](/eleutheros.md) jeńcom  
 i więźniom swobodę;  
 aby obwieszczać rok łaski Pańskiej,  
 i dzień pomsty naszego Boga;  

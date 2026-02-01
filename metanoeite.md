@@ -18,8 +18,8 @@ Bynajmniej, powiadam wam; lecz jeśli się nie **nawrócicie**, wszyscy tak samo
 
 [Łukasz 15,4-7](https://biblia.deon.pl/rozdzial.php?id=330) , [Łukasz 18,12-14](https://biblia.deon.pl/rozdzial.php?id=261&werset=12#W12)   
 «Któż z was, gdy ma sto owiec, a zgubi jedną z nich, nie zostawia dziewięćdziesięciu dziewięciu na pustyni i nie idzie za zgubioną, aż ją znajdzie?
-A gdy ją znajdzie, bierze z radością na ramiona i wraca do domu; sprasza przyjaciół i sąsiadów i mówi im: "Cieszcie się ze mną, bo znalazłem owcę, która mi zginęła".
-Powiadam wam: Tak samo w niebie większa będzie radość z jednego grzesznika, który się **nawraca**, niż z dziewięćdziesięciu dziewięciu sprawiedliwych, którzy nie potrzebują nawrócenia. 
+A gdy ją znajdzie, bierze z [radością](/chara.md) na ramiona i wraca do domu; sprasza przyjaciół i sąsiadów i mówi im: "Cieszcie się ze mną, bo znalazłem owcę, która mi zginęła".
+Powiadam wam: Tak samo w niebie większa będzie [radość](/chara.md) z jednego grzesznika, który się **nawraca**, niż z dziewięćdziesięciu dziewięciu sprawiedliwych, którzy nie potrzebują nawrócenia. 
 
 [Łukasz 17,3-4](https://biblia.deon.pl/rozdzial.php?id=332)  
 Jeśli brat twój zawini, upomnij go; i jeśli żałuje, przebacz mu! I jeśliby siedem razy na dzień zawinił przeciw tobie i siedem razy zwróciłby się do ciebie, mówiąc: "Żałuję tego", przebacz mu!» 

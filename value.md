@@ -6,7 +6,7 @@ na obraz Boży go stworzył (...)
 A Bóg widział, że wszystko, co uczynił, było bardzo dobre.
 
 [Izajasz 43,1-5](https://biblia.deon.pl/rozdzial.php?id=515)  
-Nie lękaj się, bo cię wykupiłem,  
+[Nie lękaj](/elpis.md) się, bo cię wykupiłem,  
 wezwałem cię po imieniu; tyś moim!  
 Gdy pójdziesz przez wody, Ja będę z tobą,  
 i gdy przez rzeki, nie zatopią ciebie.  
@@ -19,8 +19,8 @@ Kusz i Sabę w zamian za ciebie.
 Ponieważ drogi jesteś w moich oczach,  
 nabrałeś wartości i Ja cię miłuję,  
 przeto daję ludzi za ciebie  
-i narody za życie twoje.  
-Nie lękaj się, bo jestem z tobą.
+i narody za [życie](/zoen.md) twoje.  
+[Nie lękaj się](/elpis.md), bo jestem z tobą.
 
 [Psalm 139,13-15](https://biblia.deon.pl/rozdzial.php?id=972)  
 Ty bowiem utworzyłeś moje nerki,  
@@ -41,7 +41,7 @@ A więc nie jesteście już obcymi i przychodniami, ale jesteście współobywat
 
 [Rzymian 8,14-17](https://biblia.deon.pl/rozdzial.php?id=277)  
 Albowiem wszyscy ci, których prowadzi Duch Boży, są synami Bożymi.  
-Nie otrzymaliście przecież ducha niewoli, by się znowu pogrążyć w bojaźni, ale otrzymaliście ducha przybrania za synów, w którym możemy wołać: «Abba, Ojcze!»  
+Nie otrzymaliście przecież ducha [niewoli](/eleutheros.md), by się znowu pogrążyć w bojaźni, ale otrzymaliście ducha przybrania za synów, w którym możemy wołać: «Abba, Ojcze!»  
 Sam Duch wspiera swym świadectwem naszego ducha, że jesteśmy dziećmi Bożymi.  
 Jeżeli zaś jesteśmy dziećmi, to i dziedzicami: dziedzicami Boga, a współdziedzicami Chrystusa, skoro wspólnie z Nim cierpimy po to, by też wspólnie mieć udział w chwale.  
 

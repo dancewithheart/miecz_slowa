@@ -13,7 +13,7 @@ zawiódł owoc oliwek,
 a pola nie dają żywności,  
 choć trzody owiec znikają z owczarni  
 i nie ma wołów w zagrodach.  
-Ja mimo to w Panu będę się radować,  
+Ja mimo to w Panu będę się [radować](/chara.md),  
 weselić się będę w Bogu, moim Zbawicielu.  
 Pan Bóg - moja siła,  
 uczyni nogi moje podobne jelenim,  
@@ -32,7 +32,7 @@ Błogosław, duszo moja, Pana,
 i nie zapominaj o wszystkich Jego dobrodziejstwach!  
 On odpuszcza wszystkie twoje winy,  
 On leczy wszystkie twe niemoce,  
-On życie twoje wybawia od zguby,  
+On [życie](/zoen.md) twoje wybawia od zguby,  
 On wieńczy cię łaską i zmiłowaniem,  
 On twoje dni nasyca dobrami:  
 odnawia się młodość twoja jak orła  

@@ -15,9 +15,9 @@ abym obwoływał rok łaski od Pana.
 [Izajasz 55,2-12](https://biblia.deon.pl/rozdzial.php?id=530&werset=2#W2)  
 Szukają Mnie dzień za dniem,  
 pragną poznać moje drogi,  
-jak naród, który kocha sprawiedliwość  
+jak naród, który kocha [sprawiedliwość](/dikaiosyne.md)  
 i nie opuszcza Prawa swego Boga.  
-Proszą Mnie o sprawiedliwe prawa,  
+Proszą Mnie o [sprawiedliwe](/dikaiosyne.md) prawa,  
 pragną bliskości Boga: (...)  
 Czyż nie jest raczej ten post, który wybieram:  
 rozerwać kajdany zła,  
@@ -30,7 +30,7 @@ nagiego, którego ujrzysz, przyodziać
 i nie odwrócić się od współziomków.  
 Wtedy twoje światło wzejdzie jak zorza  
 i szybko rozkwitnie twe zdrowie.  
-Sprawiedliwość twoja poprzedzać cię będzie,  
+[Sprawiedliwość](/dikaiosyne.md) twoja poprzedzać cię będzie,  
 chwała Pańska iść będzie za tobą.  
 Wtedy zawołasz, a Pan odpowie,  
 wezwiesz pomocy, a On [rzeknie]: "Oto jestem!"  
@@ -77,7 +77,7 @@ Tak i wy rozumiejcie, że umarliście dla grzechu, żyjecie zaś dla Boga w Chry
 Niechże więc grzech nie króluje w waszym śmiertelnym ciele, poddając was swoim pożądliwościom.  
 
 [Rzymian 6,13-14](https://biblia.deon.pl/rozdzial.php?id=275)  
-Nie oddawajcie też członków waszych jako broń nieprawości na służbę grzechowi, ale oddajcie się na służbę Bogu jako ci, którzy ze śmierci przeszli do życia, i członki wasze oddajcie jako broń sprawiedliwości na służbę Bogu. Albowiem grzech nie powinien nad wami panować, skoro nie jesteście poddani Prawu, lecz łasce. 
+Nie oddawajcie też członków waszych jako broń nieprawości na służbę grzechowi, ale oddajcie się na służbę Bogu jako ci, którzy ze śmierci przeszli do życia, i członki wasze oddajcie jako broń [sprawiedliwości](/dikaiosyne.md) na służbę Bogu. Albowiem grzech nie powinien nad wami panować, skoro nie jesteście poddani Prawu, lecz łasce. 
 
 [Rzymian 8,1-9](https://biblia.deon.pl/rozdzial.php?id=277)  
 Teraz jednak dla tych, którzy są w Chrystusie Jezusie, nie ma już potępienia. Albowiem prawo Ducha, który daje [życie](/zoen.md) w Chrystusie Jezusie, wyzwoliło cię spod prawa grzechu i śmierci. Co bowiem było niemożliwe dla Prawa, ponieważ ciało czyniło je bezsilnym, [tego dokonał Bóg]. On to zesłał Syna swego w ciele podobnym do ciała grzesznego i dla [usunięcia] grzechu wydał w tym ciele wyrok potępiający grzech, aby to, co nakazuje Prawo, wypełniło się w nas, o ile postępujemy nie według ciała, ale według Ducha.

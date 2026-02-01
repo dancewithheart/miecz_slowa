@@ -13,7 +13,7 @@ bo Ty jesteś ze mną.
 [Nie lękaj się](/elpis.md), bo Ja jestem z tobą;  
 nie trwóż się, bom Ja twoim Bogiem.  
 Umacniam cię, jeszcze i wspomagam,  
-podtrzymuję cię moją prawicą sprawiedliwą.  
+podtrzymuję cię moją prawicą [sprawiedliwą](/dikaiosyne.md).  
 
 [Psalm 139,1-15](https://biblia.deon.pl/rozdzial.php?id=972)  
 Panie, przenikasz i znasz mnie,  

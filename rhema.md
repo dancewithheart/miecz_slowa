@@ -26,7 +26,7 @@ Utrapił cię, dał ci odczuć głód, żywił cię manną, której nie znałeś
 Słowa, które Ja wam powiedziałem, są duchem i są [życiem](/zoen.md).  
 
 [Ef 6,10-18](https://biblia.deon.pl/rozdzial.php?id=1033)  
-W końcu bądźcie mocni w Panu - siłą Jego potęgi. (...) Dlatego weźcie na siebie pełną zbroję Bożą, abyście w dzień zły zdołali się przeciwstawić i ostać, zwalczywszy wszystko. Stańcie więc do walki przepasawszy biodra wasze [prawdą](/aletheia.md) i oblókłszy pancerz, którym jest sprawiedliwość4, a obuwszy nogi w gotowość głoszenia [dobrej nowiny](/euaggelion.md) o pokoju. W każdym położeniu bierzcie wiarę jako tarczę, dzięki której zdołacie zgasić wszystkie rozżarzone pociski Złego. Weźcie też hełm zbawienia i miecz Ducha, to jest słowo Boże - wśród wszelakiej modlitwy i błagania. Przy każdej sposobności módlcie się w Duchu!  
+W końcu bądźcie mocni w Panu - siłą Jego potęgi. (...) Dlatego weźcie na siebie pełną zbroję Bożą, abyście w dzień zły zdołali się przeciwstawić i ostać, zwalczywszy wszystko. Stańcie więc do walki przepasawszy biodra wasze [prawdą](/aletheia.md) i oblókłszy pancerz, którym jest [sprawiedliwość](/dikaiosyne.md), a obuwszy nogi w gotowość głoszenia [dobrej nowiny](/euaggelion.md) o pokoju. W każdym położeniu bierzcie wiarę jako tarczę, dzięki której zdołacie zgasić wszystkie rozżarzone pociski Złego. Weźcie też hełm zbawienia i miecz Ducha, to jest słowo Boże - wśród wszelakiej modlitwy i błagania. Przy każdej sposobności módlcie się w Duchu!  
 
 [Psalm 1,1-3](https://biblia.deon.pl/rozdzial.php?id=834)  
 Szczęśliwy mąż,  
@@ -53,5 +53,35 @@ Niech ta Księga Prawa będzie zawsze na twych ustach: rozważaj ją w dzień i 
 Wiara rodzi się z tego, co się słyszy, tym zaś, co się słyszy, jest słowo Chrystusa.  
 
 [Jk 1,22-25](https://biblia.deon.pl/rozdzial.php?id=1044)  
-Wprowadzajcie zaś słowo w czyn, a nie bądźcie tylko słuchaczami oszukującymi samych siebie.
- 
+Wprowadzajcie zaś słowo w czyn, a nie bądźcie tylko słuchaczami oszukującymi samych siebie.  
+
+[Jan 14,10-14](https://biblia.deon.pl/rozdzial.php?id=353&werset=10#W10)  
+Czy nie wierzysz, że Ja jestem w Ojcu, a Ojciec we Mnie?  
+Słów tych, które wam mówię, nie wypowiadam od siebie. Ojciec, który trwa we Mnie, On sam dokonuje tych dzieł.  
+Wierzcie Mi, że Ja jestem w Ojcu, a Ojciec we Mnie.
+Jeżeli zaś nie - wierzcie przynajmniej ze względu na same dzieła!  
+Zaprawdę, zaprawdę, powiadam wam: Kto we Mnie [wierzy](/pistis.md), będzie także dokonywał tych dzieł, których Ja dokonuję,
+owszem, i większe od tych uczyni, bo Ja idę do Ojca.  
+A o cokolwiek prosić będziecie w imię moje, to uczynię, aby Ojciec był otoczony chwałą w Synu.  
+O cokolwiek prosić mnie będziecie w imię moje, Ja to spełnię.  
+
+[Łukasz 10,38-42](https://biblia.deon.pl/rozdzial.php?id=324)  
+W dalszej ich podróży przyszedł do jednej wsi.
+Tam pewna niewiasta, imieniem Marta, przyjęła Go do swego domu.
+Miała ona siostrę, imieniem Maria, która siadła u nóg Pana i przysłuchiwała się Jego mowie.
+Natomiast Marta uwijała się koło rozmaitych posług. Przystąpiła więc do Niego i rzekła:  
+«Panie, czy Ci to obojętne, że moja siostra zostawiła mnie samą przy usługiwaniu?
+Powiedz jej, żeby mi pomogła».  
+A Pan jej odpowiedział:  
+«Marto, Marto, troszczysz się i niepokoisz o wiele, a potrzeba <mało albo> tylko jednego.
+Maria obrała najlepszą cząstkę, której nie będzie pozbawiona»
+
+[Łukasz 5,3-6](https://biblia.deon.pl/rozdzial.php?id=320)  
+Wszedłszy do jednej łodzi, która należała do Szymona, poprosił go, żeby nieco odbił od brzegu. Potem usiadł i z łodzi nauczał tłumy.
+Gdy przestał mówić, rzekł do Szymona:  
+«Wypłyń na głębię i zarzućcie sieci na połów!».  
+A Szymon odpowiedział:  
+«Mistrzu, całą noc pracowaliśmy i niceśmy nie ułowili. Lecz na Twoje słowo zarzucę sieci».  
+Skoro to uczynili, zagarnęli tak wielkie mnóstwo ryb, że sieci ich zaczynały się rwać.  
+
+![Przypowieść o perle](/assets/img/Lk5_porwane_sieci.jpg)

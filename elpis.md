@@ -32,7 +32,7 @@ cóż może mi uczynić człowiek?
 Nie lękaj się, bo Ja jestem z tobą;  
 nie trwóż się, bom Ja twoim Bogiem.  
 Umacniam cię, jeszcze i wspomagam,  
-podtrzymuję cię moją prawicą sprawiedliwą.  
+podtrzymuję cię moją prawicą [sprawiedliwą](/dikaiosyne.md).  
 
 [Rzymian 8,24-25](https://biblia.deon.pl/rozdzial.php?id=277)[UBG]  
 Nadzieją bowiem jesteśmy zbawieni. (...)  

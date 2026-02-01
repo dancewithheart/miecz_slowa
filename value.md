@@ -39,6 +39,9 @@ Jesteśmy bowiem Jego dziełem (poematem), stworzeni w Chrystusie Jezusie dla do
 Bo przez Niego jedni i drudzy w jednym Duchu mamy przystęp do Ojca.  
 A więc nie jesteście już obcymi i przychodniami, ale jesteście współobywatelami świętych i domownikami Boga.  
 
+[Łukasz 11,13](https://biblia.deon.pl/rozdzial.php?id=326)  
+Jeśli więc wy, choć źli jesteście, umiecie dawać dobre dary swoim dzieciom, o ileż bardziej Ojciec z nieba da Ducha Świętego tym, którzy Go proszą.
+
 [Rzymian 8,14-17](https://biblia.deon.pl/rozdzial.php?id=277)  
 Albowiem wszyscy ci, których prowadzi Duch Boży, są synami Bożymi.  
 Nie otrzymaliście przecież ducha [niewoli](/eleutheros.md), by się znowu pogrążyć w bojaźni, ale otrzymaliście ducha przybrania za synów, w którym możemy wołać: «Abba, Ojcze!»  

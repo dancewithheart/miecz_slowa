@@ -63,6 +63,6 @@ Błogosławieni, którzy łakną i pragną [sprawiedliwości](/dikaiosyne.md), a
 Błogosławieni miłosierni, albowiem oni miłosierdzia dostąpią.  
 Błogosławieni czystego serca, albowiem oni Boga oglądać będą.  
 Błogosławieni, którzy wprowadzają [pokój](/eirene.md), albowiem oni będą nazwani [synami Bożymi](/value.md).  
-Błogosławieni, którzy cierpią prześladowanie dla sprawiedliwości, albowiem do nich należy [królestwo niebieskie](/basileia.md).  
+Błogosławieni, którzy cierpią prześladowanie dla [sprawiedliwości](/dikaiosyne.md), albowiem do nich należy [królestwo niebieskie](/basileia.md).  
 Błogosławieni jesteście, gdy [ludzie] wam urągają i prześladują was, i gdy z mego powodu mówią kłamliwie wszystko złe na was.  
 Cieszcie się i radujcie, albowiem wasza nagroda wielka jest w niebie. Tak bowiem prześladowali proroków, którzy byli przed wami.  

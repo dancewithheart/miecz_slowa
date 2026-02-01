@@ -79,6 +79,11 @@ To jest największe i pierwsze przykazanie.
 Drugie podobne jest do niego: Będziesz miłował swego bliźniego jak siebie samego.
 Na tych dwóch przykazaniach opiera się całe Prawo i Prorocy».  
 
+[Galatów 5,5-6](https://biblia.deon.pl/rozdzial.php?id=1026)  
+My zaś z pomocą Ducha, na zasadzie [wiary](/pistis.md) wyczekujemy spodziewanej sprawiedliwości.  
+Albowiem w Chrystusie Jezusie ani obrzezanie, ani jego brak nie mają żadnego znaczenia, tylko wiara, która działa przez [miłość](/agape.md).
+
+
 [Izajasz 54,10](https://biblia.deon.pl/rozdzial.php?id=526)  
 Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie i nie zachwieje się moje przymierze pokoju, mówi Pan, który ma litość nad tobą.  
 

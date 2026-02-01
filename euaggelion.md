@@ -23,7 +23,7 @@ Bo ja nie wstydzę się Ewangelii, jest bowiem ona mocą Bożą ku zbawieniu dla
 [Tytus 3,4-7](https://biblia.deon.pl/rozdzial.php?id=1036)  
 Gdy zaś ukazała się dobroć i miłość Zbawiciela, naszego Boga, do ludzi, nie ze względu na sprawiedliwe uczynki, jakie spełniliśmy, lecz z miłosierdzia swego zbawił nas przez obmycie odradzające i odnawiające w Duchu Świętym, którego wylał na nas obficie przez Jezusa Chrystusa, Zbawiciela naszego, abyśmy, usprawiedliwieni Jego łaską, stali się w nadziei dziedzicami życia wiecznego.  
 
-[2 Kor 5,17-19](https://biblia.deon.pl/rozdzial.php?id=999)  
+[2 Koryntian 5,17-19](https://biblia.deon.pl/rozdzial.php?id=999)  
 Jeżeli więc ktoś pozostaje w Chrystusie, jest nowym stworzeniem. To, co dawne, minęło, a oto stało się nowe. Wszystko zaś to pochodzi od Boga, który pojednał nas z sobą przez Chrystusa i zlecił na posługę jednania. Albowiem w Chrystusie Bóg jednał z sobą świat, nie poczytując ludziom ich grzechów, nam zaś przekazując słowo jednania.
 
 [Rzymian 8,1-3](https://biblia.deon.pl/rozdzial.php?id=277)  

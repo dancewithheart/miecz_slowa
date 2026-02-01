@@ -3,7 +3,7 @@
 Greckie słowo: μετανοειτε (metanoeite) [strong 3340](https://biblia.oblubienica.eu/wystepowanie/strong/id/3340) vs eπιστρέψει (epistrepsei) [strong 1994](https://biblia.oblubienica.eu/wystepowanie/strong/id/1994)  
 
 [Marek 1,15](https://biblia.deon.pl/rozdzial.php?id=267), [Mateusz 3,2](https://biblia.deon.pl/rozdzial.php?id=246), [Mateusz 4,17](https://biblia.deon.pl/rozdzial.php?id=247)     
-Czas się wypełnił i bliskie jest królestwo Boże. Nawracajcie się i wierzcie w Ewangelię!
+Czas się wypełnił i bliskie jest [królestwo Boże](/basileia.md). Nawracajcie się i wierzcie w [Ewangelię](/euaggelion.md)!
 
 [Marek 6,8-13](https://biblia.deon.pl/rozdzial.php?id=305)  
 Następnie przywołał do siebie Dwunastu i zaczął rozsyłać ich po dwóch. Dał im też władzę nad duchami nieczystymi i przykazał im, żeby nic z sobą nie brali na drogę prócz laski: ani chleba, ani torby, ani pieniędzy w trzosie. «Ale idźcie obuci w sandały i nie wdziewajcie dwóch sukien!»

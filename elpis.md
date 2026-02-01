@@ -60,10 +60,10 @@ A pokój Boży, który przewyższa wszelki umysł, będzie strzegł waszych serc
 Trzymajmy się nadziei jako bezpiecznej i silnej kotwicy duszy.  
 
 [2 Tymoteusza 1,7](https://biblia.deon.pl/rozdzial.php?id=1022)  
-Nie dał nam Bóg ducha bojaźni, ale mocy i miłości, i trzeźwego myślenia.
+Nie dał nam Bóg ducha bojaźni, ale mocy i [miłości](/agape.md), i trzeźwego myślenia.
 
 [1 Jana 4,18](https://biblia.deon.pl/rozdzial.php?id=991)  
-W miłości nie ma lęku, lecz doskonała miłość usuwa lęk.
+W [miłości](/agape.md) nie ma lęku, lecz doskonała miłość usuwa lęk.
 
 [Rzymian 15,13](https://biblia.deon.pl/rozdzial.php?id=284)  
 A Bóg, [dawca] nadziei, niech wam udzieli pełni radości i pokoju w wierze, abyście przez moc Ducha Świętego byli bogaci w nadzieję.  

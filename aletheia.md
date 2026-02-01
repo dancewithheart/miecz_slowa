@@ -45,7 +45,7 @@ Nie tylko za nimi proszę, ale i za tymi, którzy dzięki ich słowu będą wier
 aby wszyscy stanowili jedno, jak Ty, Ojcze, we Mnie, a Ja w Tobie, aby i oni stanowili w Nas jedno
 
 [Jan 17,26](https://biblia.deon.pl/rozdzial.php?id=356)  
-Objawiłem im Twoje imię i nadal będę objawiał, aby miłość, którą Ty Mnie umiłowałeś, w nich była i Ja w nich  
+Objawiłem im Twoje imię i nadal będę objawiał, aby [miłość](/agape.md), którą Ty Mnie umiłowałeś, w nich była i Ja w nich  
 
 [2 Samuela 28](https://biblia.deon.pl/rozdzial.php?id=1214)  
 Twoje słowa są prawdą.  
@@ -70,7 +70,7 @@ Wspomnij na miłosierdzie Twe, Panie,
 na łaski Twoje, co trwają od wieków.  
 
 [Efezjan 15](https://biblia.deon.pl/rozdzial.php?id=1031)  
-Natomiast żyjąc prawdziwie w miłości sprawmy, by wszystko rosło ku Temu, który jest Głową - ku Chrystusowi  
+Natomiast żyjąc prawdziwie w [miłości](/agape.md) sprawmy, by wszystko rosło ku Temu, który jest Głową - ku Chrystusowi  
 
 [Psalm 51,8](https://biblia.deon.pl/rozdzial.php?id=884)  
 Oto Ty masz upodobanie w ukrytej prawdzie,  

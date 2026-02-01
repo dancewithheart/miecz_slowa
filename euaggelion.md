@@ -6,7 +6,7 @@ Greckie słowo: ευαγγελιον (euangelion) [strong 2098](https://biblia.o
 Tak bowiem Bóg umiłował świat, że Syna swego Jednorodzonego dał, aby każdy, kto w Niego wierzy, nie zginął, ale miał życie wieczne. 
 
 [Rzymian 5,8](https://biblia.deon.pl/rozdzial.php?id=274)  
-Bóg zaś okazuje nam swoją miłość [właśnie] przez to, że Chrystus umarł za nas, gdyśmy byli jeszcze grzesznikami.  
+Bóg zaś okazuje nam swoją [miłość](/agape.md) [właśnie] przez to, że Chrystus umarł za nas, gdyśmy byli jeszcze grzesznikami.  
 
 [Marek 1,14-15](https://biblia.deon.pl/rozdzial.php?id=267)  
 Jezus przyszedł do Galilei i głosił Ewangelię Bożą. Mówił: «Czas się wypełnił i bliskie jest królestwo Boże. Zmieniajcie myślenie i wierzcie w Ewangelię!»
@@ -21,7 +21,7 @@ Chrystus umarł - zgodnie z Pismem - za nasze grzechy, (...) że zmartwychwstał
 Bo ja nie wstydzę się Ewangelii, jest bowiem ona mocą Bożą ku zbawieniu dla każdego wierzącego, najpierw dla Żyda, potem dla Greka. W niej bowiem objawia się sprawiedliwość Boża, która od wiary wychodzi i ku wierze prowadzi, jak jest napisane: a sprawiedliwy z wiary żyć będzie.  
 
 [Tytus 3,4-7](https://biblia.deon.pl/rozdzial.php?id=1036)  
-Gdy zaś ukazała się dobroć i miłość Zbawiciela, naszego Boga, do ludzi, nie ze względu na sprawiedliwe uczynki, jakie spełniliśmy, lecz z miłosierdzia swego zbawił nas przez obmycie odradzające i odnawiające w Duchu Świętym, którego wylał na nas obficie przez Jezusa Chrystusa, Zbawiciela naszego, abyśmy, usprawiedliwieni Jego łaską, stali się w nadziei dziedzicami życia wiecznego.  
+Gdy zaś ukazała się dobroć i [miłość](/agape.md) Zbawiciela, naszego Boga, do ludzi, nie ze względu na sprawiedliwe uczynki, jakie spełniliśmy, lecz z miłosierdzia swego zbawił nas przez obmycie odradzające i odnawiające w Duchu Świętym, którego wylał na nas obficie przez Jezusa Chrystusa, Zbawiciela naszego, abyśmy, usprawiedliwieni Jego łaską, stali się w nadziei dziedzicami życia wiecznego.  
 
 [2 Koryntian 5,17-19](https://biblia.deon.pl/rozdzial.php?id=999)  
 Jeżeli więc ktoś pozostaje w Chrystusie, jest nowym stworzeniem. To, co dawne, minęło, a oto stało się nowe. Wszystko zaś to pochodzi od Boga, który pojednał nas z sobą przez Chrystusa i zlecił na posługę jednania. Albowiem w Chrystusie Bóg jednał z sobą świat, nie poczytując ludziom ich grzechów, nam zaś przekazując słowo jednania.

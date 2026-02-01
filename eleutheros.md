@@ -6,7 +6,7 @@ Greckie słowo: αελευθερος (eleutheros) [strong 1658](https://biblia.o
 [Łukasz 4,18-19](https://biblia.deon.pl/rozdzial.php?id=319), [Izajasz 61,1-2](https://biblia.deon.pl/rozdzial.php?id=533&werset=1#W1)   
 Duch Pański spoczywa na Mnie,  
 ponieważ Mnie namaścił i posłał Mnie,  
-abym ubogim niósł dobrą nowinę,  
+abym ubogim niósł [dobrą nowinę](/euaggelion.md),  
 więźniom głosił wolność,  
 a niewidomym przejrzenie;  
 abym uciśnionych odsyłał wolnymi,  

@@ -5,6 +5,16 @@
 [Rzymian 8,1](https://biblia.deon.pl/rozdzial.php?id=277)  
 Teraz jednak dla tych, którzy są w Chrystusie Jezusie, nie ma już potępienia.  
 
+[Rzymian 8,14-16](https://biblia.deon.pl/rozdzial.php?id=277)  
+Wszyscy ci, których prowadzi Duch Boży, są synami Bożymi. 
+Nie otrzymaliście przecież ducha niewoli, by się znowu pogrążyć w bojaźni, ale
+otrzymaliście ducha przybrania za synów,  
+w którym możemy wołać: «Abba, Ojcze!»  
+Sam Duch wspiera swym świadectwem naszego ducha, że jesteśmy dziećmi Bożym.  
+Jeżeli zaś jesteśmy dziećmi, to i dziedzicami: dziedzicami Boga, a współdziedzicami Chrystusa,
+skoro wspólnie z Nim cierpimy po to, by też wspólnie mieć udział w chwale.  
+
+
 [Izajasz 1,18](https://biblia.deon.pl/rozdzial.php?id=473)   
 Choćby wasze grzechy były jak szkarłat,  
 jak śnieg wybieleją.  

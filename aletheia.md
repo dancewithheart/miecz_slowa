@@ -65,7 +65,7 @@ Daj mi poznać drogi Twoje, Panie,
 i naucz mnie Twoich ścieżek!  
 Prowadź mnie według Twej prawdy i pouczaj,  
 bo Ty jesteś Bóg, mój Zbawca,  
-i w Tobie mam zawsze nadzieję.  
+i w Tobie mam zawsze [nadzieję](/elpis.md).  
 Wspomnij na miłosierdzie Twe, Panie,  
 na łaski Twoje, co trwają od wieków.  
 

@@ -49,7 +49,7 @@ aby im wieniec dać zamiast popiołu,
 olejek radości zamiast szaty smutku,  
 pieśń chwały zamiast zgnębienia na duchu.
 
-[2 Kor 1,3-5](https://biblia.deon.pl/rozdzial.php?id=995)  
+[2 Koryntian 1,3-5](https://biblia.deon.pl/rozdzial.php?id=995)  
 Błogosławiony Bóg i Ojciec Pana naszego Jezusa Chrystusa, Ojciec miłosierdzia i Bóg wszelkiej pociechy,  
 Ten, który nas pociesza w każdym naszym utrapieniu, byśmy sami mogli pocieszać tych, co są w jakiejkolwiek udręce, pociechą, której doznajemy od Boga.  
 Jak bowiem obfitują w nas cierpienia Chrystusa, tak też wielkiej doznajemy przez Chrystusa pociechy.

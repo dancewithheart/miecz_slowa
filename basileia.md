@@ -19,7 +19,7 @@ Zapytany przez faryzeuszów, kiedy przyjdzie królestwo Boże, odpowiedział im:
 «Królestwo Boże nie przyjdzie dostrzegalnie; i nie powiedzą: "Oto tu jest" albo: "Tam".  
 Oto bowiem królestwo Boże pośród was jest»  
 
-[J 18,36-37](https://biblia.deon.pl/rozdzial.php?id=357)  
+[Jan 18,36-37](https://biblia.deon.pl/rozdzial.php?id=357)  
 Odpowiedział Jezus:  
 «Królestwo moje nie jest z tego świata.  
 Gdyby królestwo moje było z tego świata, słudzy moi biliby się, abym nie został wydany Żydom.  
@@ -29,11 +29,11 @@ Odpowiedział Jezus:
 «Tak, jestem królem. Ja się na to narodziłem i na to przyszedłem na świat, aby dać świadectwo [prawdzie](/aletheia.md).
 Każdy, kto jest z prawdy, słucha mojego głosu».  
 
-[Mt 13,31-32](https://biblia.deon.pl/rozdzial.php?id=256), [Marek 4,30-32](https://biblia.deon.pl/rozdzial.php?id=303), [Łukasz 13,19](https://biblia.deon.pl/rozdzial.php?id=328) **przypowieść o ziarnie gorczycy**  
+[Mateusz 13,31-32](https://biblia.deon.pl/rozdzial.php?id=256), [Marek 4,30-32](https://biblia.deon.pl/rozdzial.php?id=303), [Łukasz 13,19](https://biblia.deon.pl/rozdzial.php?id=328) **przypowieść o ziarnie gorczycy**  
 Królestwo niebieskie podobne jest do ziarnka gorczycy, które ktoś wziął i posiał na swej roli.
 Jest ono najmniejsze ze wszystkich nasion, lecz gdy wyrośnie, jest większe od innych jarzyn i staje się drzewem, tak że ptaki przylatują z powietrza i gnieżdżą się na jego gałęziach»
 
-[Mt 13,33](https://biblia.deon.pl/rozdzial.php?id=256), [Łukasz 13,20-21](https://biblia.deon.pl/rozdzial.php?id=328) **przypowieść o zaczynie**  
+[Mateusz 13,33](https://biblia.deon.pl/rozdzial.php?id=256), [Łukasz 13,20-21](https://biblia.deon.pl/rozdzial.php?id=328) **przypowieść o zaczynie**  
 «Królestwo niebieskie podobne jest do zaczynu, który pewna kobieta wzięła i włożyła w trzy miary mąki, aż się wszystko zakwasiło»
 
 [Marek 4,21](https://biblia.deon.pl/rozdzial.php?id=303), [Łukasz 8,16-18](https://biblia.deon.pl/rozdzial.php?id=323&werset=16#W16)  **światło**  

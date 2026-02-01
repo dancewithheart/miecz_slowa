@@ -16,16 +16,16 @@ nie wraca do Mnie bezowocne,
 zanim wpierw nie dokona tego, co chciałem,  
 i nie spełni pomyślnie swego posłannictwa.  
 
-[Mt 4,4](https://biblia.deon.pl/rozdzial.php?id=247)  
+[Mateusz 4,4](https://biblia.deon.pl/rozdzial.php?id=247)  
 Nie samym chlebem żyje człowiek, lecz każdym słowem, które pochodzi z ust Bożych.  
 
 [Pwp 8,3](https://biblia.deon.pl/rozdzial.php?id=219&werset=3#W3)  
 Utrapił cię, dał ci odczuć głód, żywił cię manną, której nie znałeś ani ty, ani twoi przodkowie, bo chciał ci dać poznać, że nie samym tylko chlebem żyje człowiek, ale człowiek żyje wszystkim, co pochodzi z ust Pana.  
 
-[J 6,63](https://biblia.deon.pl/rozdzial.php?id=345)  
+[Jan 6,63](https://biblia.deon.pl/rozdzial.php?id=345)  
 Słowa, które Ja wam powiedziałem, są duchem i są [życiem](/zoen.md).  
 
-[Ef 6,10-18](https://biblia.deon.pl/rozdzial.php?id=1033)  
+[Efezjan 6,10-18](https://biblia.deon.pl/rozdzial.php?id=1033)  
 W końcu bądźcie mocni w Panu - siłą Jego potęgi. (...) Dlatego weźcie na siebie pełną zbroję Bożą, abyście w dzień zły zdołali się przeciwstawić i ostać, zwalczywszy wszystko. Stańcie więc do walki przepasawszy biodra wasze [prawdą](/aletheia.md) i oblókłszy pancerz, którym jest [sprawiedliwość](/dikaiosyne.md), a obuwszy nogi w gotowość głoszenia [dobrej nowiny](/euaggelion.md) o pokoju. W każdym położeniu bierzcie wiarę jako tarczę, dzięki której zdołacie zgasić wszystkie rozżarzone pociski Złego. Weźcie też hełm zbawienia i miecz Ducha, to jest słowo Boże - wśród wszelakiej modlitwy i błagania. Przy każdej sposobności módlcie się w Duchu!  
 
 [Psalm 1,1-3](https://biblia.deon.pl/rozdzial.php?id=834)  

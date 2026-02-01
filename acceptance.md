@@ -14,8 +14,7 @@ Sam Duch wspiera swym świadectwem naszego ducha, że jesteśmy dziećmi Bożym.
 Jeżeli zaś jesteśmy dziećmi, to i dziedzicami: dziedzicami Boga, a współdziedzicami Chrystusa,
 skoro wspólnie z Nim cierpimy po to, by też wspólnie mieć udział w chwale.  
 
-
-[Izajasz 1,18](https://biblia.deon.pl/rozdzial.php?id=473)   
+[Izajasz 1,18](https://biblia.deon.pl/rozdzial.php?id=473)  
 Choćby wasze grzechy były jak szkarłat,  
 jak śnieg wybieleją.  
 
@@ -100,3 +99,7 @@ Raczej cię nazwą "Moje <w niej> upodobanie",
 a krainę twoją "Poślubiona".  
 Albowiem spodobałaś się Panu  
 i twoja kraina otrzyma męża.   
+
+[1 Koryntian 6,19-20](https://biblia.deon.pl/rozdzial.php?id=291)  
+Czyż nie wiecie, że ciało wasze jest świątynią Ducha Świętego, który w was jest, a którego macie od Boga, i że już nie należycie do samych siebie?
+Za [wielką] bowiem cenę zostaliście nabyci. Chwalcie więc Boga w waszym ciele!

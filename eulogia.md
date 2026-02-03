@@ -25,7 +25,7 @@ i abyśmy przez [wiarę](/pistis.md) otrzymali obiecanego Ducha.
 Niech Bóg się zmiłuje nad nami, niech nam błogosławi;
 niech zajaśnieje dla nas Jego oblicze!
 Aby na ziemi znano Jego drogę,
-Jego zbawienie - pośród wszystkich ludów3.
+Jego [zbawienie](/sozo.md) - pośród wszystkich ludów.
 
 Niech Ciebie, Boże, wysławiają ludy,
 niech wszystkie narody dają Ci chwałę!

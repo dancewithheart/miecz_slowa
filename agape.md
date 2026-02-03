@@ -27,7 +27,7 @@ Odpowiedź [łagodna](/praotes.md) uśmierza zapalczywość
 Miastem odkrytym, bez murów, jest człowiek nieopanowany.
 
 [Przysłów 19,11](https://biblia.deon.pl/rozdzial.php?id=557)  
-Rozważny człowiek nad gniewem panuje, a [chwałą](/doksan.md) jego - zapomnienie uraz.
+Rozważny człowiek nad gniewem panuje, a [chwałą](/doxa.md) jego - zapomnienie uraz.
 
 [Ezechiel 36,26](https://biblia.deon.pl/rozdzial.php?id=740)  
 I dam wam [serce](/cardia.md) nowe i ducha nowego tchnę do waszego wnętrza, odbiorę wam [serce](/cardia.md) kamienne, a dam wam [serce](/cardia.md) z ciała.  
@@ -104,3 +104,10 @@ Albowiem w Chrystusie Jezusie ani obrzezanie, ani jego brak nie mają żadnego z
 Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie i nie zachwieje się moje przymierze pokoju, mówi Pan, który ma litość nad tobą.  
 
 ![Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie](/assets/img/Iz54_gory_ustapic_milosc.jpg)
+
+[Pieśń nad pieśniami 8,6-7](https://biblia.deon.pl/rozdzial.php?id=589)  
+Połóż mię jak pieczęć na twoim [sercu](/cardia.md), jak pieczęć na twoim ramieniu, 
+bo jak śmierć potężna jest miłość, a zazdrość jej nieprzejednana jak Szeol,
+żar jej to żar ognia, płomień Pański.
+Wody wielkie nie zdołają ugasić miłości, nie zatopią jej rzeki.
+Jeśliby kto oddał za miłość całe bogactwo swego domu, pogardzą nim tylko.

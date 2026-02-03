@@ -66,13 +66,14 @@ A [pokój](/eirene.md) Boży, który przewyższa wszelki umysł, będzie strzeg�
 Trzymajmy się nadziei jako bezpiecznej i silnej kotwicy duszy.  
 
 [2 Tymoteusza 1,7](https://biblia.deon.pl/rozdzial.php?id=1022)  
-Nie dał nam Bóg ducha bojaźni, ale mocy i [miłości](/agape.md), i [trzeźwego myślenia](/egkrateia.md).
+Nie dał nam Bóg ducha bojaźni, ale [mocy](/dynamis.md) i [miłości](/agape.md), i [trzeźwego myślenia](/egkrateia.md).
 
 [1 Jana 4,18](https://biblia.deon.pl/rozdzial.php?id=991)  
 W [miłości](/agape.md) nie ma lęku, lecz [doskonała](/teleios.md) miłość usuwa lęk.
 
 [Rzymian 15,13](https://biblia.deon.pl/rozdzial.php?id=284)  
-A Bóg, [dawca] nadziei, niech wam udzieli pełni [radości](/chara.md) i [pokoju](/eirene.md) w [wierze](/pistis.md), abyście przez moc Ducha Świętego byli bogaci w nadzieję.  
+A Bóg, [dawca] nadziei, niech wam udzieli pełni [radości](/chara.md) i [pokoju](/eirene.md) w [wierze](/pistis.md),
+abyście przez [moc](/dynamis.md) Ducha Świętego byli bogaci w nadzieję.  
 
 [Psalm 130,3-7](https://biblia.deon.pl/rozdzial.php?id=963)
 Jeśli zachowasz pamięć o grzechach, Panie, Panie, któż się ostoi?

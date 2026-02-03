@@ -50,13 +50,14 @@ kiedy w ukryciu powstawałem,
 utkany w głębi ziemi.
 
 [Jozuego 1,9](https://biblia.deon.pl/rozdzial.php?id=1113)  
-Czyż ci nie rozkazałem: Bądź mężny i mocny? Nie bój się i [nie lękaj](/elpis.md), ponieważ z tobą jest Pan, Bóg twój, wszędzie, gdziekolwiek pójdziesz»
+Czyż ci nie rozkazałem: Bądź mężny i [mocny](/dynamis.md)? Nie bój się i [nie lękaj](/elpis.md), ponieważ z tobą jest Pan, Bóg twój, wszędzie, gdziekolwiek pójdziesz»
 
 [Hebrajczyków 13,5](https://biblia.deon.pl/rozdzial.php?id=377)  
 Nie opuszczę cię ani pozostawię
 
 [Powtórzonego Prawa 31,6](https://biblia.deon.pl/rozdzial.php?id=232&werset=6#W6)  
-Bądź mężny i mocny, [nie lękaj się](/elpis.md), nie bój się ich, gdyż Pan, Bóg twój, idzie z tobą, nie opuści cię i nie porzuci»
+Bądź mężny i [mocny](/dynamis.md), [nie lękaj się](/elpis.md), nie bój się ich,
+gdyż Pan, Bóg twój, idzie z tobą, nie opuści cię i nie porzuci»
 
 [Izajasz 49,15–18](https://biblia.deon.pl/rozdzial.php?id=521)  
 Czyż może niewiasta zapomnieć o swym niemowlęciu,  
@@ -75,11 +76,8 @@ Tak, w tych wszystkich ustroisz się jakby w klejnoty
 i jak oblubienica opaszesz się nimi.
 
 [Psalm 27,9-10](https://biblia.deon.pl/rozdzial.php?id=860)  
-Ty jesteś moją pomocą,  
-więc mnie nie odrzucaj i nie opuszczaj mnie,  
-Boże, moje Zbawienie!  
-Choćby mnie opuścili ojciec mój i matka,  
-to jednak Pan mnie przygarnie.
+Ty jesteś moją pomocą, więc mnie nie odrzucaj i nie opuszczaj mnie, Boże, moje [Zbawienie](/sozo.md)!  
+Choćby mnie opuścili ojciec mój i matka, to jednak Pan mnie przygarnie.
 
 [Jana 14,18-20](https://biblia.deon.pl/rozdzial.php?id=353)  
 Nie zostawię was sierotami: Przyjdę do was.  

@@ -5,14 +5,13 @@
 Greckie słowo: χαρα (chara) [strong 5479](https://biblia.oblubienica.eu/wystepowanie/strong/id/5479)  
 
 [Jan 16,6-7](https://biblia.deon.pl/rozdzial.php?id=355)  
-Ale ponieważ to wam powiedziałem, smutek napełnił wam serce.  
-Jednakże mówię wam prawdę: Pożyteczne jest dla was moje odejście. Bo jeżeli nie odejdę, Pocieszyciel nie przyjdzie do was. A jeżeli odejdę, poślę Go do was.  
+Ale ponieważ to wam powiedziałem, smutek napełnił wam [serce](/cardia.md).  
+Jednakże mówię wam prawdę: Pożyteczne jest dla was moje odejście. Bo jeżeli nie odejdę, Pocieszyciel nie przyjdzie do was.
+A jeżeli odejdę, poślę Go do was.  
 
 [Psalm 42,12](https://biblia.deon.pl/rozdzial.php?id=875)  
-Czemu jesteś zgnębiona, moja duszo,  
-i czemu jęczysz we mnie?  
-Ufaj Bogu, bo jeszcze Go będę wysławiać:  
-Zbawienie mego oblicza i mojego Boga.  
+Czemu jesteś zgnębiona, moja duszo, i czemu jęczysz we mnie?  
+Ufaj Bogu, bo jeszcze Go będę wysławiać: [Zbawienie](/sozo.md) mego oblicza i mojego Boga.  
 
 [Psalm 34,19](https://biblia.deon.pl/rozdzial.php?id=867)  
 Pan jest blisko skruszonych w sercu  
@@ -41,13 +40,13 @@ Posłał mnie, by głosić [dobrą nowinę](/euaggelion.md) ubogim,
 by opatrywać rany serc złamanych,  
 by zapowiadać [wyzwolenie](/eleutheros.md) jeńcom  
 i więźniom swobodę;  
-aby obwieszczać rok łaski Pańskiej,  
+aby obwieszczać rok [łaski](/charis.md) Pańskiej,  
 i dzień pomsty naszego Boga;  
 aby pocieszać wszystkich zasmuconych,  
 by rozweselić płaczących na Syjonie,  
 aby im wieniec dać zamiast popiołu,  
 olejek radości zamiast szaty smutku,  
-pieśń chwały zamiast zgnębienia na duchu.
+pieśń [chwały](/doxa.md) zamiast zgnębienia na duchu.
 
 [2 Koryntian 1,3-5](https://biblia.deon.pl/rozdzial.php?id=995)  
 Błogosławiony Bóg i Ojciec Pana naszego Jezusa Chrystusa, Ojciec miłosierdzia i Bóg wszelkiej pociechy,  
@@ -60,7 +59,7 @@ i gdy przez rzeki, nie zatopią ciebie.
 Gdy pójdziesz przez ogień, nie spalisz się,  
 i nie strawi cię płomień.  
 Albowiem Ja jestem Pan, twój Bóg,  
-Święty Izraela, twój Zbawca.
+Święty Izraela, twój [Zbawca](/sozo.md).
 
 [Psalm 94,19](https://biblia.deon.pl/rozdzial.php?id=927)  
 Gdy się w moim sercu mnożą niepokoje,  
@@ -70,7 +69,7 @@ Twoje pociechy mnie orzeźwiają.
 Będziecie się smucić, ale smutek wasz zamieni się w radość
 
 [Jan 16,22](https://biblia.deon.pl/rozdzial.php?id=355)  
-Także i wy teraz doznajecie smutku. Znowu jednak was zobaczę, i rozraduje się serce wasze, a radości waszej nikt wam nie zdoła odebrać.
+Także i wy teraz doznajecie smutku. Znowu jednak was zobaczę, i rozraduje się [serce](/cardia.md) wasze, a radości waszej nikt wam nie zdoła odebrać.
 
 [Psalm 126,5](https://biblia.deon.pl/rozdzial.php?id=959)  
 Którzy we łzach sieją, żąć będą w radości.
@@ -85,25 +84,25 @@ Nie bądźcie przygnębieni, gdyż radość w Panu jest waszą ostoją.
 Jak kogo pociesza własna matka,  
 tak Ja was pocieszać będę;  
 w Jerozolimie doznacie pociechy».  
-Na ten widok rozraduje się serce wasze,  
+Na ten widok rozraduje się [serce](/cardia.md) wasze,  
 a kości wasze nabiorą świeżości jak murawa.  
 Ręka Pana da się poznać Jego sługom,
 
 [Filipian 4,4-7](https://biblia.deon.pl/rozdzial.php?id=1042)  
 Radujcie się zawsze w Panu; jeszcze raz powtarzam: radujcie się!  
-Niech będzie znana wszystkim ludziom wasza wyrozumiała łagodność: Pan jest blisko!  
+Niech będzie znana wszystkim ludziom wasza wyrozumiała [łagodność](/praotes.md): Pan jest blisko!  
 O nic się już zbytnio nie troskajcie, ale w każdej sprawie wasze prośby przedstawiajcie Bogu w modlitwie i błaganiu z dziękczynieniem!  
-A pokój Boży, który przewyższa wszelki umysł, będzie strzegł waszych serc i myśli w Chrystusie Jezusie.
+A [pokój](/eirene.md) Boży, który przewyższa wszelki umysł, będzie strzegł waszych serc i myśli w Chrystusie Jezusie.
 
 [1 Tesaloniczan 5,16-18](https://biblia.deon.pl/rozdzial.php?id=1000)  
-Zawsze się radujcie, nieustannie się módlcie! W każdym położeniu dziękujcie, taka jest bowiem wola Boża w Jezusie Chrystusie względem was.
+Zawsze się **radujcie**, nieustannie się módlcie! W każdym położeniu dziękujcie, taka jest bowiem wola Boża w Jezusie Chrystusie względem was.
 
 [Psalm 30,11-13](https://biblia.deon.pl/rozdzial.php?id=863)  
 Wysłuchaj, Panie, zmiłuj się nade mną;  
 bądź, Panie, dla mnie wspomożycielem!»  
 Biadania moje zmieniłeś mi w taniec;  
-wór mi rozwiązałeś, opasałeś mnie radością,  
-by moje serce nie milknąc psalm Tobie śpiewało.  
+wór mi rozwiązałeś, opasałeś mnie **radością**,  
+by moje [serce](/cardia.md) nie milknąc psalm Tobie śpiewało.  
 Boże mój, Panie, będę Cię wysławiał na wieki.  
 
 ![Płacz mój zmieniłeś w taniec](/assets/img/Ps_30_taniec.jpg)

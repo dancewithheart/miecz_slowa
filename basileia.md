@@ -3,10 +3,10 @@
 Greckie słowo: βασιλεια (basileia) [strong 932](https://biblia.oblubienica.eu/wystepowanie/strong/id/932)  
 
 [Łukasz 16,16](https://biblia.deon.pl/rozdzial.php?id=331)  
-Aż do Jana sięgało Prawo i Prorocy; odtąd głosi się Dobrą Nowinę o królestwie Bożym, i każdy gwałtem wdziera się do niego.
+Aż do Jana sięgało Prawo i Prorocy; odtąd głosi się [Dobrą Nowinę](/euaggelion.md) o królestwie Bożym, i każdy gwałtem wdziera się do niego.
 
 [Marek 1,14-15](https://biblia.deon.pl/rozdzial.php?id=267)  
-Jezus przyszedł do Galilei i głosił Ewangelię Bożą. Mówił:  
+Jezus przyszedł do Galilei i głosił [Ewangelię](/euaggelion.md) Bożą. Mówił:  
 «Czas się wypełnił i bliskie jest królestwo Boże. [Nawracajcie się](/metanoeite.md) i [wierzcie](/pistis.md) w [Ewangelię](/euaggelion.md)!»
 
 [Łukasz 4,42-42](https://biblia.deon.pl/rozdzial.php?id=319)  
@@ -148,7 +148,7 @@ Następnego zaś dnia wyjął dwa denary, dał gospodarzowi i rzekł:
 "Miej o nim staranie, a jeśli co więcej wydasz, ja oddam tobie, gdy będę wracał".  
 Któryż z tych trzech okazał się, według twego zdania, bliźnim tego, który wpadł w ręce zbójców?»  
 On odpowiedział:  
-«Ten, który mu okazał miłosierdzie». Jezus mu rzekł: «Idź, i ty czyń podobnie!»
+«Ten, który mu okazał [miłosierdzie](/eleos.md)». Jezus mu rzekł: «Idź, i ty czyń podobnie!»
 
 ![Miłosierny samarytanin](/assets/img/Lk10_samarytanin.jpg)
 
@@ -156,7 +156,7 @@ On odpowiedział:
 Zaprawdę, powiadam wam: Nikt nie opuszcza domu albo żony, braci, rodziców albo dzieci dla królestwa Bożego, żeby
 nie otrzymał daleko więcej w tym czasie, a w wieku przyszłym - życia wiecznego»
 
-[Łukasz 19,12-27](https://biblia.deon.pl/rozdzial.php?id=334&werset=12#W12), [Mateusz 25,14-30](https://biblia.deon.pl/rozdzial.php?id=361&werset=14#W14)  
+[Łukasz 19,12-27](https://biblia.deon.pl/rozdzial.php?id=334&werset=12#W12), [Mateusz 25,14-30](https://biblia.deon.pl/rozdzial.php?id=361&werset=14#W14) **przypowieść o minach (talentach)**  
 «Pewien człowiek szlachetnego rodu udał się w kraj daleki, aby uzyskać dla siebie godność królewską i wrócić.
 Przywołał więc dziesięciu sług swoich, dał im dziesięć min i rzekł do nich:  
 "Zarabiajcie nimi, aż wrócę".  
@@ -186,21 +186,22 @@ Odpowiedzieli mu:
 "Powiadam wam: Każdemu, kto ma, będzie dodane; a temu, kto nie ma, zabiorą nawet to, co ma.
 Tych zaś przeciwników moich, którzy nie chcieli, żebym panował nad nimi, przyprowadźcie tu i pościnajcie w moich oczach"».
 
+![Przypowieść o talentach](/assets/img/Lu19_talenty2.jpg)
 
 [Mateusz 5,3-12](https://biblia.deon.pl/rozdzial.php?id=248), [Łukasz 6,20-23](https://biblia.deon.pl/rozdzial.php?id=321)  
 Błogosławieni ubodzy w duchu, albowiem do nich należy królestwo niebieskie.  
 Błogosławieni, którzy się [smucą](/chara.md), albowiem oni będą pocieszeni.  
 Błogosławieni cisi, albowiem oni na własność posiądą ziemię.  
 Błogosławieni, którzy łakną i pragną [sprawiedliwości](/dikaiosyne.md), albowiem oni będą nasyceni.  
-Błogosławieni miłosierni, albowiem oni miłosierdzia dostąpią.  
+Błogosławieni [miłosierni](/eleos.md), albowiem oni miłosierdzia dostąpią.  
 Błogosławieni czystego serca, albowiem oni Boga oglądać będą.  
-Błogosławieni, którzy wprowadzają [pokój](/eirene.md), albowiem oni będą nazwani [synami Bożymi](/value.md).  
+Błogosławieni, którzy wprowadzają [pokój](/eirene.md), albowiem oni będą nazwani [synami Bożymi](/kleronomos.md).  
 Błogosławieni, którzy cierpią prześladowanie dla [sprawiedliwości](/dikaiosyne.md), albowiem do nich należy królestwo niebieskie.  
 Błogosławieni jesteście, gdy [ludzie] wam urągają i prześladują was, i gdy z mego powodu mówią kłamliwie wszystko złe na was.  
 Cieszcie się i [radujcie](/chara.md), albowiem wasza nagroda wielka jest w niebie. Tak bowiem prześladowali proroków, którzy byli przed wami.  
 
 [Mateusz 5,17-20](https://biblia.deon.pl/rozdzial.php?id=248)  
-Nie sądźcie, że przyszedłem znieść Prawo albo Proroków. Nie przyszedłem znieść, ale wypełnić6.
+Nie sądźcie, że przyszedłem znieść Prawo albo Proroków. Nie przyszedłem znieść, ale wypełnić.
 Zaprawdę. bowiem powiadam wam: Dopóki niebo i ziemia nie przeminą, ani jedna jota, ani jedna kreska nie zmieni się w Prawie, aż się wszystko spełni.
 Ktokolwiek więc zniósłby jedno z tych przykazań, choćby najmniejszych, i uczyłby tak ludzi, ten będzie najmniejszy w królestwie niebieskim.
 A kto je wypełnia i uczy wypełniać, ten będzie wielki w królestwie niebieskim.
@@ -215,7 +216,8 @@ Przecież Ojciec wasz niebieski wie, że tego wszystkiego potrzebujecie.
 Starajcie się naprzód o królestwo i o Jego [sprawiedliwość](/dikaiosyne.md), a to wszystko będzie wam dodane.
 
 [Jan 3,3-5](https://biblia.deon.pl/rozdzial.php?id=342)  
-Rzekł do niego Jezus: «Zaprawdę, zaprawdę, powiadam ci, jeśli się ktoś nie narodzi powtórnie, nie może ujrzeć królestwa Bożego.   
+Rzekł do niego Jezus:  
+«Zaprawdę, zaprawdę, powiadam ci, jeśli się ktoś nie narodzi powtórnie, nie może ujrzeć królestwa Bożego.   
 Nikodem powiedział do Niego:  
 «Jakżeż może się człowiek narodzić będąc starcem?
 Czyż może powtórnie wejść do łona swej matki i narodzić się?»  
@@ -236,7 +238,7 @@ Tłumy słuchały z uwagą i skupieniem słów Filipa, ponieważ widziały znaki
 Z wielu bowiem opętanych wychodziły z donośnym krzykiem duchy nieczyste, wielu też sparaliżowanych i chromych zostało uzdrowionych. 
 Wielka radość zapanowała w tym mieście. 
 Pewien człowiek, imieniem Szymon, który dawniej zajmował się czarną magią, wprawiał w zdumienie lud Samarii i twierdził, że jest kimś niezwykłym. 
-Poważali go wszyscy od najmniejszego do największego: «Ten jest wielką mocą Bożą» - mówili. 
+Poważali go wszyscy od najmniejszego do największego: «Ten jest wielką [mocą Bożą](/dynamis.md)» - mówili. 
 A liczyli się z nim dlatego, że już od dość długiego czasu wprawiał ich w podziw swoimi magicznymi sztukami. 
 Lecz kiedy uwierzyli Filipowi, który nauczał o królestwie Bożym oraz o imieniu Jezusa Chrystusa, zarówno mężczyźni, jak i kobiety przyjmowali chrzest.
 Uwierzył również sam Szymon, a kiedy przyjął chrzest, towarzyszył wszędzie Filipowi i zdumiewał się bardzo na widok dokonywanych cudów i znaków.
@@ -251,22 +253,22 @@ Poróżnieni między sobą zabierali się do odejścia. Wtedy Paweł powiedział
 Idź do tego ludu i powiedz:  
 Usłyszycie dobrze, ale nie zrozumiecie,  
 i dobrze będziecie widzieć, a nie zobaczycie.  
-Bo otępiało serce tego ludu.  
+Bo otępiało [serce](/cardia.md) tego ludu.  
 Usłyszeli niechętnie i zamknęli oczy,  
 aby przypadkiem nie zobaczyli oczami  
 i uszami nie usłyszeli,  
-i nie zrozumieli sercem, i nie nawrócili się,  
+i nie zrozumieli [sercem](/cardia.md), i nie nawrócili się,  
 i abym ich nie uleczył.  
-Wiedzcie więc, że to zbawienie Boże posłane jest do pogan, a oni będą słuchać».
+Wiedzcie więc, że to [zbawienie](/sozo.md) Boże posłane jest do pogan, a oni będą słuchać».
 
 Przez całe dwa lata pozostał w wynajętym przez siebie mieszkaniu i przyjmował wszystkich,
 którzy do niego przychodzili, głosząc królestwo Boże i nauczając o Panu Jezusie Chrystusie
 zupełnie swobodnie, bez przeszkód.
 
 [Rzymian 14,17-19](https://biblia.deon.pl/rozdzial.php?id=283)  
-Bo królestwo Boże to nie sprawa tego, co się je i pije, ale to [sprawiedliwość](/dikaiosyne.md), [pokój] i [radość] w Duchu Świętym.
-A kto w taki sposób [służy] Chrystusowi, ten podoba się Bogu i ma uznanie u ludzi.
-Starajmy się więc o to, co służy sprawie [pokoju](/eirene.md) i wzajemnemu zbudowaniu.  
+Bo królestwo Boże to nie sprawa tego, co się je i pije, ale to [sprawiedliwość](/dikaiosyne.md), [pokój](/eirene.md) i [radość](/chara.md) w Duchu Świętym.
+A kto w taki sposób [służy](/diakonia.md) Chrystusowi, ten podoba się Bogu i ma uznanie u ludzi.
+Starajmy się więc o to, co [służy](/diakonia.md) sprawie [pokoju](/eirene.md) i wzajemnemu zbudowaniu.  
 
 [1 Koryntian 6,9-11](https://biblia.deon.pl/rozdzial.php?id=291)  
 Czyż nie wiecie, że niesprawiedliwi nie posiądą królestwa Bożego?
@@ -288,7 +290,8 @@ niewłaściwa pogoń za zaszczytami, niezgoda, rozłamy,
 zazdrość, pijaństwo, hulanki i tym podobne.  
 Co do nich zapowiadam wam, jak to już zapowiedziałem: ci, którzy się takich rzeczy dopuszczają, królestwa Bożego nie odziedziczą.
 
-Owocem zaś ducha jest: [miłość](/agape.md), [radość](/chara.md), [pokój](/eirene.md), cierpliwość, uprzejmość, dobroć, wierność, łagodność, opanowanie. Przeciw takim [cnotom] [nie ma Prawa](/dikaiosyne.md).
+Owocem zaś ducha jest: [miłość](/agape.md), [radość](/chara.md), [pokój](/eirene.md), [cierpliwość](/makrothymia.md), [dobroć](/agathosynes.md), [życzliwość](/chrestotes.md), [wierność](/pistis.md), [łagodność](/praotes.md), [opanowanie](/egkrateia.md).
+Przeciw takim [cnotom] [nie ma Prawa](/dikaiosyne.md).
 
 A ci, którzy należą do Chrystusa Jezusa, ukrzyżowali ciało swoje z jego namiętnościami i pożądaniami.
 Mając życie od Ducha, do Ducha się też stosujmy. 
@@ -296,12 +299,12 @@ Mając życie od Ducha, do Ducha się też stosujmy.
 [Kolosan 1,9-14](https://biblia.deon.pl/rozdzial.php?id=1397)  
 Nie przestajemy za was się modlić i prosić [Boga],
 abyście doszli do pełnego poznania Jego woli,
-w całej mądrości i duchowym zrozumieniu,
+w całej [mądrości](/sofia.md) i duchowym zrozumieniu,
 abyście już postępowali w sposób godny Pana,
-w pełni Mu się podobając, wydając owoce wszelkich dobrych czynów
+w pełni Mu się podobając, wydając owoce wszelkich [dobrych](/agathosynes.md) czynów
 i rosnąc przez głębsze poznanie Boga.
-Niech moc Jego chwały w pełni was umacnia do [okazywania] wszelkiego rodzaju cierpliwości i stałości.
-Z [radością](/chara.md) [dziękujcie](/eucharisteo.md) Ojcu, który was uzdolnił do uczestnictwa w dziale świętych w światłości.
+Niech [moc Jego](/dynamis.md) [chwały](/doxa.md) w pełni was umacnia do [okazywania] wszelkiego rodzaju [cierpliwości](/makrothymia.md) i stałości.
+Z [radością](/chara.md) [dziękujcie](/eucharisteo.md) Ojcu, który was uzdolnił do uczestnictwa w dziale [świętych](/hagios.md) w światłości.
 On [uwolnił](/eleutheros.md) nas spod władzy ciemności i przeniósł do królestwa swego umiłowanego Syna,
 w którym mamy [odkupienie](/eleutheros.md) - odpuszczenie grzechów.  
 
@@ -310,7 +313,7 @@ Tymczasem jednak Chrystus zmartwychwstał jako pierwszy spośród tych, co pomar
 Ponieważ bowiem przez człowieka [przyszła] śmierć, przez człowieka też [dokona się] zmartwychwstanie.
 I jak w Adamie wszyscy umierają, tak też w Chrystusie wszyscy będą ożywieni,
 lecz każdy według własnej kolejności. (...)
-Wreszcie nastąpi koniec, gdy przekaże królowanie Bogu i Ojcu i gdy pokona wszelką Zwierzchność, Władzę i Moc.
+Wreszcie nastąpi koniec, gdy przekaże królowanie Bogu i Ojcu i gdy pokona wszelką Zwierzchność, Władzę i [Moc](/dynamis.md).
 Trzeba bowiem, ażeby królował, aż położy wszystkich nieprzyjaciół pod swoje stopy.
 Jako ostatni wróg, zostanie pokonana śmierć. Wszystko bowiem rzucił pod stopy Jego.
 Kiedy się mówi, że wszystko jest poddane, znaczy to, że z wyjątkiem Tego, który mu wszystko poddał.
@@ -321,7 +324,7 @@ Zawsze winniśmy za was Bogu dziękować, co jest rzeczą słuszną,
 bo [wiara](/pistis.md) wasza bardzo wzrasta,
 a [miłość](/agape.md) wzajemna u każdego z was obfituje,
 i to tak, że my sami w Kościołach Bożych chlubimy się wami
-z powodu waszej cierpliwości i [wiary](pistis.md) we wszystkich waszych prześladowaniach
+z powodu waszej [wytrwałości](/hypomenes.md) i [wiary](pistis.md) we wszystkich waszych prześladowaniach
 i uciskach, które znosicie.
 Są one zapowiedzią sprawiedliwego sądu Boga;
 celem jego jest uznanie was za godnych królestwa Bożego,
@@ -331,11 +334,11 @@ za które też cierpicie.
 Nastąpi zniszczenie tego, co zniszczalne, a więc tego, co zostało stworzone,
 aby pozostało to, co jest niewzruszone.
 Dlatego też otrzymując niewzruszone królestwo, trwajmy w łasce,
-a przez nią służmy Bogu ze czcią i bojaźnią!
+a przez nią [służmy](/diakonia.md) Bogu ze czcią i bojaźnią!
 Bóg nasz bowiem jest ogniem pochłaniającym.  
 
 [Jakub 2,5](https://biblia.deon.pl/rozdzial.php?id=1045)  
-Czy Bóg nie wybrał ubogich tego świata na bogatych w [wierze](/pistis.md) oraz na [dziedziców](/value.md) królestwa przyobiecanego tym, którzy Go [miłują](/agape.md)?  
+Czy Bóg nie wybrał ubogich tego świata na bogatych w [wierze](/pistis.md) oraz na [dziedziców](/kleronomos.md) królestwa przyobiecanego tym, którzy Go [miłują](/agape.md)?  
 
 [Dzieje 2,32-41](https://biblia.deon.pl/rozdzial.php?id=379)  
 Tego właśnie Jezusa wskrzesił Bóg, a my wszyscy jesteśmy tego świadkami. Wyniesiony na prawicę Boga, otrzymał od Ojca obietnicę Ducha Świętego i zesłał Go,
@@ -348,7 +351,7 @@ W wielu też innych słowach dawał świadectwo i napominał: «Ratujcie się sp
 
 [Kolosan 3, 12-17](https://biblia.deon.pl/rozdzial.php?id=1394)  
 Jako więc wybrańcy Boży - święci i umiłowani - obleczcie się w serdeczne miłosierdzie,  
-dobroć, pokorę, cichość, cierpliwość,  
+dobroć, [pokorę](/tapeinos.md), cichość, [cierpliwość](/makrothymia.md),  
 znosząc jedni drugich i wybaczając sobie nawzajem,  
 jeśliby miał ktoś zarzut przeciw drugiemu: jak Pan wybaczył wam, tak i wy!  
 Na to zaś wszystko [przyobleczcie] [miłość](/agape.md), która jest więzią doskonałości.
@@ -356,15 +359,15 @@ A sercami waszymi niech rządzi [pokój](/eirene.md) Chrystusowy,
 do którego też zostaliście wezwani w jednym Ciele.
 I bądźcie [wdzięczni](/eucharisteo.md)! 
 [Słowo](/rhema.md) Chrystusa niech w was przebywa z [całym swym] bogactwem:
-z wszelką mądrością nauczajcie i napominajcie samych siebie przez psalmy, hymny,
-pieśni pełne ducha, pod wpływem łaski śpiewając Bogu w waszych sercach.
+z wszelką [mądrością](/sofia.md) nauczajcie i napominajcie samych siebie przez psalmy, hymny,
+pieśni pełne ducha, pod wpływem [łaski](/charis.md) śpiewając Bogu w waszych sercach.
 I wszystko, cokolwiek działacie słowem lub czynem, wszystko [czyńcie] w imię Pana Jezusa,
 [dziękując](/eucharisteo.md) Bogu Ojcu przez Niego.
 
 [Efezjan 4,1-6](https://biblia.deon.pl/rozdzial.php?id=1031)  
 Zachęcam was ja, więzień w Panu,
 abyście postępowali w sposób godny powołania, jakim zostaliście wezwani,
-z całą pokorą i cichością, z cierpliwością, znosząc siebie nawzajem w [miłości](/agape.md).
+z całą [pokorą](/tapeinos.md) i cichością, z [cierpliwością](/makrothymia.md), znosząc siebie nawzajem w [miłości](/agape.md).
 Usiłujcie zachować jedność Ducha dzięki więzi, jaką jest [pokój](/eirene.md).
 Jedno jest Ciało i jeden Duch, bo też zostaliście wezwani do jednej [nadziei](/elpis.md),
 jaką daje wasze powołanie. 
@@ -378,4 +381,4 @@ Tymczasem to należało czynić, i tamtego nie opuszczać.
 Biada wam, faryzeuszom, bo lubicie pierwsze miejsce w synagogach i pozdrowienia na rynku. 
 
 [Łukasz 12,8](https://biblia.deon.pl/rozdzial.php?id=327)  
-Kto się przyzna do Mnie wobec ludzi, przyzna się i Syn Człowieczy do niego wobec aniołów Bożych; 9 a kto się Mnie wyprze wobec ludzi, tego wyprę się i Ja wobec aniołów Bożych.  
+Kto się przyzna do Mnie wobec ludzi, przyzna się i Syn Człowieczy do niego wobec aniołów Bożych; a kto się Mnie wyprze wobec ludzi, tego wyprę się i Ja wobec aniołów Bożych.  

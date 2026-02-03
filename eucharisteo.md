@@ -4,7 +4,7 @@
 Czemu jesteś zgnębiona, moja duszo,  
 i czemu jęczysz we mnie?  
 Ufaj Bogu, bo jeszcze Go będę wysławiać:  
-Zbawienie mego oblicza i mojego Boga.
+[Zbawienie](/sozo.md) mego oblicza i mojego Boga.
 
 [Habakuk 3,17-19](https://biblia.deon.pl/rozdzial.php?id=811)  
 Drzewo figowe wprawdzie nie rozwija pąków,  
@@ -27,13 +27,13 @@ Niech będzie imię Pańskie błogosławione!»
 
 [Psalm 103,1-5](https://biblia.deon.pl/rozdzial.php?id=936)  
 Błogosław, duszo moja, Pana,  
-i całe moje wnętrze - święte imię Jego!  
+i całe moje wnętrze - [święte](/hagios.md) imię Jego!  
 Błogosław, duszo moja, Pana,  
 i nie zapominaj o wszystkich Jego dobrodziejstwach!  
 On odpuszcza wszystkie twoje winy,  
 On leczy wszystkie twe niemoce,  
 On [życie](/zoen.md) twoje wybawia od zguby,  
-On wieńczy cię łaską i zmiłowaniem,  
+On wieńczy cię [łaską](/charis.md) i zmiłowaniem,  
 On twoje dni nasyca dobrami:  
 odnawia się młodość twoja jak orła  
 
@@ -42,4 +42,11 @@ Jezus wzniósł oczy do góry i rzekł: «Ojcze, dziękuję Ci, żeś mnie wysł
 
 [Łukasz 17,11-19](https://biblia.deon.pl/rozdzial.php?id=332)  
 Zmierzając do Jerozolimy przechodził przez pogranicze Samarii i Galilei.
-Gdy wchodzili do pewnej wsi, wyszło naprzeciw Niego dziesięciu trędowatych. Zatrzymali się z daleka i głośno zawołali: «Jezusie, Mistrzu, ulituj się nad nami!» Na ich widok rzekł do nich: «Idźcie, pokażcie się kapłanom!» A gdy szli, zostali oczyszczeni. Wtedy jeden z nich widząc, że jest uzdrowiony, wrócił chwaląc Boga donośnym głosem, upadł na twarz do nóg Jego i dziękował Mu. A był to Samarytanin. Jezus zaś rzekł: «Czy nie dziesięciu zostało oczyszczonych? Gdzie jest dziewięciu? Żaden się nie znalazł, który by wrócił i oddał chwałę Bogu, tylko ten cudzoziemiec». Do niego zaś rzekł: «Wstań, idź, twoja wiara cię uzdrowiła».  
+Gdy wchodzili do pewnej wsi, wyszło naprzeciw Niego dziesięciu trędowatych. Zatrzymali się z daleka i głośno zawołali:
+«Jezusie, Mistrzu, ulituj się nad nami!» Na ich widok rzekł do nich:
+«Idźcie, pokażcie się kapłanom!» A gdy szli, zostali oczyszczeni.
+Wtedy jeden z nich widząc, że jest uzdrowiony, wrócił chwaląc Boga donośnym głosem,
+upadł na twarz do nóg Jego i dziękował Mu. A był to Samarytanin.
+Jezus zaś rzekł: «Czy nie dziesięciu zostało oczyszczonych? Gdzie jest dziewięciu?
+Żaden się nie znalazł, który by wrócił i oddał [chwałę](/doxa.md) Bogu, tylko ten cudzoziemiec».
+Do niego zaś rzekł: «Wstań, idź, twoja [wiara](/pistis.md) cię uzdrowiła».  

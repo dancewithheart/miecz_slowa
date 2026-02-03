@@ -10,7 +10,7 @@ abym ubogim niósł [dobrą nowinę](/euaggelion.md),
 więźniom głosił wolność,  
 a niewidomym przejrzenie;  
 abym uciśnionych odsyłał wolnymi,  
-abym obwoływał rok łaski od Pana. 
+abym obwoływał rok [łaski](/charis.md) od Pana. 
 
 [Izajasz 55,2-12](https://biblia.deon.pl/rozdzial.php?id=530&werset=2#W2)  
 Szukają Mnie dzień za dniem,  
@@ -31,7 +31,7 @@ i nie odwrócić się od współziomków.
 Wtedy twoje światło wzejdzie jak zorza  
 i szybko rozkwitnie twe zdrowie.  
 [Sprawiedliwość](/dikaiosyne.md) twoja poprzedzać cię będzie,  
-chwała Pańska iść będzie za tobą.  
+[chwała](/doxa.md) Pańska iść będzie za tobą.  
 Wtedy zawołasz, a Pan odpowie,  
 wezwiesz pomocy, a On [rzeknie]: "Oto jestem!"  
 Jeśli u siebie usuniesz jarzmo,  
@@ -52,7 +52,8 @@ odnowicielem rumowisk - na zamieszkanie.
 
 [Mateusz 11,28-30](https://biblia.deon.pl/rozdzial.php?id=254)  
 Przyjdźcie do Mnie wszyscy, którzy utrudzeni i obciążeni jesteście, a Ja was pokrzepię.
-Weźcie moje jarzmo na siebie i uczcie się ode Mnie, bo jestem cichy i pokorny sercem, a znajdziecie ukojenie dla dusz waszych.
+Weźcie moje jarzmo na siebie i uczcie się ode Mnie, bo jestem [łagodny](/praotes.md) i [pokorny](/tapeinos.md) [sercem](/cardia.md),
+a znajdziecie ukojenie dla dusz waszych.
 Albowiem jarzmo moje jest słodkie, a moje brzemię lekkie». 
 
 [Jan 8,31-36](https://biblia.deon.pl/rozdzial.php?id=347)   
@@ -64,20 +65,21 @@ Jeżeli więc Syn was wyzwoli, wówczas będziecie rzeczywiście wolni.
 
 [Jan 1,12](https://biblia.deon.pl/rozdzial.php?id=340)  
 Wszystkim tym jednak, którzy Je przyjęli,
-dało moc, aby się stali dziećmi Bożymi  
+dało [moc](/dynamis.md), aby się stali dziećmi Bożymi  
 
 [Jan 14,6](https://biblia.deon.pl/rozdzial.php?id=353)  
 Odpowiedział mu Jezus: Ja jestem drogą i [prawdą](/aletheia.md), i [życiem](/zoen.md). Nikt nie przychodzi do Ojca inaczej jak tylko przeze Mnie.
 
 [Rzymian 6,6-12](https://biblia.deon.pl/rozdzial.php?id=275)  
-To wiedzcie, że dla zniszczenia grzesznego ciała dawny nasz człowiek został razem z Nim ukrzyżowany po to, byśmy już więcej nie byli w niewoli grzechu. Kto bowiem umarł, stał się wolny od grzechu3.  
+To wiedzcie, że dla zniszczenia grzesznego ciała dawny nasz człowiek został razem z Nim ukrzyżowany po to, byśmy już więcej nie byli w niewoli grzechu. Kto bowiem umarł, stał się wolny od grzechu.  
 Otóż, jeżeli umarliśmy razem z Chrystusem, [wierzymy](/pistis.md), że z Nim również żyć będziemy, wiedząc, że Chrystus powstawszy z martwych już więcej nie umiera, śmierć nad Nim nie ma już władzy.  
 Bo to, że umarł, umarł dla grzechu tylko raz, a że żyje, żyje dla Boga.  
 Tak i wy rozumiejcie, że umarliście dla grzechu, żyjecie zaś dla Boga w Chrystusie Jezusie.  
 Niechże więc grzech nie króluje w waszym śmiertelnym ciele, poddając was swoim pożądliwościom.  
 
 [Rzymian 6,13-14](https://biblia.deon.pl/rozdzial.php?id=275)  
-Nie oddawajcie też członków waszych jako broń nieprawości na służbę grzechowi, ale oddajcie się na służbę Bogu jako ci, którzy ze śmierci przeszli do życia, i członki wasze oddajcie jako broń [sprawiedliwości](/dikaiosyne.md) na służbę Bogu. Albowiem grzech nie powinien nad wami panować, skoro nie jesteście poddani Prawu, lecz łasce. 
+Nie oddawajcie też członków waszych jako broń nieprawości na służbę grzechowi, ale oddajcie się na [służbę](/diakonia.md) Bogu jako ci, którzy ze śmierci przeszli do [życia](/zoen.md), i członki wasze oddajcie jako broń [sprawiedliwości](/dikaiosyne.md) na [służbę](/diakonia.md) Bogu.
+Albowiem grzech nie powinien nad wami panować, skoro nie jesteście poddani Prawu, lecz łasce. 
 
 [Rzymian 8,1-9](https://biblia.deon.pl/rozdzial.php?id=277)  
 Teraz jednak dla tych, którzy są w Chrystusie Jezusie, nie ma już potępienia. Albowiem prawo Ducha, który daje [życie](/zoen.md) w Chrystusie Jezusie, wyzwoliło cię spod prawa grzechu i śmierci. Co bowiem było niemożliwe dla Prawa, ponieważ ciało czyniło je bezsilnym, [tego dokonał Bóg]. On to zesłał Syna swego w ciele podobnym do ciała grzesznego i dla [usunięcia] grzechu wydał w tym ciele wyrok potępiający grzech, aby to, co nakazuje Prawo, wypełniło się w nas, o ile postępujemy nie według ciała, ale według Ducha.

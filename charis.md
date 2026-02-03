@@ -16,11 +16,11 @@ Jesteśmy bowiem Jego dziełem, stworzeni w Chrystusie Jezusie dla dobrych czyn�
 [Rzymian 3,21-24](https://biblia.deon.pl/rozdzial.php?id=272)  
 Ale teraz jawną się stała [sprawiedliwość](/dikaiosyne.md) Boża niezależna od Prawa, poświadczona przez Prawo i Proroków.
 Jest to sprawiedliwość Boża przez [wiarę](/pistis.md) w Jezusa Chrystusa dla wszystkich, którzy wierzą.
-Bo nie ma tu różnicy: wszyscy bowiem zgrzeszyli i pozbawieni są [chwały](/doksan.md) Bożej,
+Bo nie ma tu różnicy: wszyscy bowiem zgrzeszyli i pozbawieni są [chwały](/doxa.md) Bożej,
 a dostępują [usprawiedliwienia](/dikaiosyne.md) darmo, z Jego łaski, przez odkupienie które jest w Chrystusie Jezusie.
 
 [Tytusa 2,11-13](https://biblia.deon.pl/rozdzial.php?id=1035)  
-Ukazała się bowiem łaska Boga, która niesie zbawienie wszystkim ludziom
+Ukazała się bowiem łaska Boga, która niesie [zbawienie](/sozo.md) wszystkim ludziom
 i poucza nas, abyśmy wyrzekłszy się bezbożności i żądz światowych, rozumnie i [sprawiedliwie](/dikaiosyne.md),
 i pobożnie [żyli](/zoen.md) na tym świecie, 
 oczekując [błogosławionej](/eulogia.md) [nadziei](/elpis.md) i objawienia się [chwały](/charis.md)

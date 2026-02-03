@@ -26,7 +26,7 @@ tym właśnie zwycięstwem, które zwyciężyło świat, jest nasza wiara.
 A kto zwycięża świat, jeśli nie ten, kto wierzy, że Jezus jest Synem Bożym?  
 
 [Ew Jana 11,40](https://biblia.deon.pl/rozdzial.php?id=350)  
-Jezus rzekł do niej: «Czyż nie powiedziałem ci, że jeśli uwierzysz, ujrzysz [chwałę](/doksan.md) Bożą?»  
+Jezus rzekł do niej: «Czyż nie powiedziałem ci, że jeśli uwierzysz, ujrzysz [chwałę](/doxa.md) Bożą?»  
 
 [Ew. Marka 11,23-24](https://biblia.deon.pl/rozdzial.php?id=310#W23)  
 Zaprawdę, powiadam wam: Kto powie tej górze: "Podnieś się i rzuć się w morze",  
@@ -43,13 +43,20 @@ Wszystko możliwe jest dla tego, kto wierzy
 Dla Boga bowiem nie ma nic niemożliwego  
 
 [Rzymian 10,9](https://biblia.deon.pl/rozdzial.php?id=279#W9)  
-Jeżeli więc ustami swoimi wyznasz, że JEZUS JEST PANEM, i w sercu swoim uwierzysz, że Bóg Go wskrzesił z martwych - osiągniesz [zbawienie](/sozo.md)  
+Jeżeli więc ustami swoimi wyznasz, że JEZUS JEST PANEM, i w [sercu](/sozo.md) swoim uwierzysz,
+że Bóg Go wskrzesił z martwych - osiągniesz [zbawienie](/sozo.md). 
 
 [Rzymian 10,10](https://biblia.deon.pl/rozdzial.php?id=279#W10)  
 Bo [sercem](/cardia.md) przyjęta wiara prowadzi do [usprawiedliwienia](/dikaiosyne.md), a wyznawanie jej ustami - do [zbawienia](/sozo.md)
 
 [Hebrajczyków 11,6](https://biblia.deon.pl/rozdzial.php?id=375#W6)  
 Bez wiary zaś nie można podobać się Bogu. Przystępujący bowiem do Boga musi uwierzyć, że [Bóg] jest i że wynagradza tych, którzy Go szukają.  
+
+[Rzymian 5,1-2](https://biblia.deon.pl/rozdzial.php?id=274)  
+Dostąpiwszy więc [usprawiedliwienia](/dikaiosyne.md) przez wiarę,
+zachowajmy [pokój](/eirene.md) z Bogiem przez Pana naszego Jezusa Chrystusa,
+dzięki któremu uzyskaliśmy przez wiarę dostęp do tej [łaski](/charis.md),
+w której trwamy i chlubimy się [nadzieją](/elpis.md) [chwały](/doxa.md) Bożej.
 
 [Ew Mateusz 17,20](https://biblia.deon.pl/rozdzial.php?id=260#W20)  
 Jeśli będziecie mieć wiarę jak ziarnko gorczycy, powiecie tej górze: "Przesuń się stąd tam!", a przesunie się. I nic niemożliwego nie będzie dla was.  

@@ -11,7 +11,7 @@ Wiara zaś jest poręką tych dóbr, których się spodziewamy, dowodem tych rze
 Wiara rodzi się z tego, co się słyszy, tym zaś, co się słyszy, jest [słowo](/rhema.md) Chrystusa.  
 
 [Rzymian 1,17](https://biblia.deon.pl/rozdzial.php?id=270#W17) (zob: [Galatów 3,10-12](https://biblia.deon.pl/rozdzial.php?id=1016&werset=10#W10), [Hebrajczyków 10,36-38](https://biblia.deon.pl/rozdzial.php?id=374&werset=36#W36), [Habakuk 2,4](https://biblia.deon.pl/rozdzial.php?id=810&werset=4#W4), [Kapłańska 18,4-5](https://biblia.deon.pl/rozdzial.php?id=110&werset=4#W4))  
-W niej bowiem objawia się sprawiedliwość Boża, która od wiary wychodzi i ku wierze prowadzi,
+W niej bowiem objawia się [sprawiedliwość](/dikaiosyne.md) Boża, która od wiary wychodzi i ku wierze prowadzi,
 jak jest napisane: a [sprawiedliwy](/dikaiosyne.md) z wiary [żyć](/zoen.md) będzie.
 
 [Ew. Marka 11,22](https://biblia.deon.pl/rozdzial.php?id=310#W22)  
@@ -43,7 +43,7 @@ Wszystko możliwe jest dla tego, kto wierzy
 Dla Boga bowiem nie ma nic niemożliwego  
 
 [Rzymian 10,9](https://biblia.deon.pl/rozdzial.php?id=279#W9)  
-Jeżeli więc ustami swoimi wyznasz, że JEZUS JEST PANEM, i w [sercu](/sozo.md) swoim uwierzysz,
+Jeżeli więc ustami swoimi wyznasz, że JEZUS JEST PANEM, i w [sercu](/cardia.md) swoim uwierzysz,
 że Bóg Go wskrzesił z martwych - osiągniesz [zbawienie](/sozo.md). 
 
 [Rzymian 10,10](https://biblia.deon.pl/rozdzial.php?id=279#W10)  

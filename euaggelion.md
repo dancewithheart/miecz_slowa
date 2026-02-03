@@ -41,7 +41,7 @@ nie poczytując ludziom ich grzechów, nam zaś przekazując [słowo](/rhema.md)
 
 [2 Koryntian 5,20-21](https://biblia.deon.pl/rozdzial.php?id=999)
 Pojednajcie się z Bogiem! On to dla nas grzechem uczynił Tego,
-który nie znał grzechu, abyśmy się stali w Nim sprawiedliwością Bożą.
+który nie znał grzechu, abyśmy się stali w Nim [sprawiedliwością](/dikaiosyne.md) Bożą.
 
 [Rzymian 8,1-3](https://biblia.deon.pl/rozdzial.php?id=277)  
 Teraz jednak dla tych, którzy są w Chrystusie Jezusie, nie ma już potępienia.

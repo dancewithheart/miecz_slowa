@@ -33,6 +33,8 @@ Każdy, kto jest z prawdy, słucha mojego głosu».
 Królestwo niebieskie podobne jest do ziarnka gorczycy, które ktoś wziął i posiał na swej roli.
 Jest ono najmniejsze ze wszystkich nasion, lecz gdy wyrośnie, jest większe od innych jarzyn i staje się drzewem, tak że ptaki przylatują z powietrza i gnieżdżą się na jego gałęziach»
 
+![Przypowieść o ziarnie gorczycy](/assets/img/Mt12_ziarno_gorczycy.jpg)
+
 [Mateusz 13,33](https://biblia.deon.pl/rozdzial.php?id=256), [Łukasz 13,20-21](https://biblia.deon.pl/rozdzial.php?id=328) **przypowieść o zaczynie**  
 «Królestwo niebieskie podobne jest do zaczynu, który pewna kobieta wzięła i włożyła w trzy miary mąki, aż się wszystko zakwasiło»
 

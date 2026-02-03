@@ -5,8 +5,6 @@ Grecki:
 /δικαιοσυνη/ dikaiosyne [1343 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1343) [92 wystąpień](https://biblehub.com/greek/strongs_1343.htm)  
 /δικαιόω/ dikaioó [1344 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1344) [39 wystąpień](https://biblehub.com/greek/strongs_1344.htm)
 
-Greckie słowo:  () [strong 1343](https://biblia.oblubienica.eu/wystepowanie/strong/id/1343)  
-
 [Rzymian 5,1-2](https://biblia.deon.pl/rozdzial.php?id=274)  
 Dostąpiwszy więc [usprawiedliwienia](/dikaiosyne.md) przez wiarę,
 zachowajmy [pokój](/eirene.md) z Bogiem przez Pana naszego Jezusa Chrystusa,

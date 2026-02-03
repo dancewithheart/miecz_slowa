@@ -17,7 +17,8 @@ Jeżeli będziecie trwać w nauce mojej, będziecie prawdziwie moimi uczniami i 
 * [rozczarowanie, rozgoryczenie → uwielbienie, wdzięczność](/eucharisteo.md)
 * [uzależnienie, zniewolenie błędami, grzechem → wolność, uwolnienie](/eleutheros.md)
 * [pycha → pokora](/tapeinos.md)
-* [prośba o dzieci](/teknα.md)
+* [modlitwa o dzieci](/teknα.md)
+* [modlitwa o męża/żonę](/gamos.md)
 
 # słowo Boże
 

@@ -70,21 +70,21 @@ Lecz anioł rzekł do niego:
 
 
 [Psalm 113,1-9](https://biblia.deon.pl/rozdzial.php?id=946)  
-Chwalcie, słudzy Pańscy,
-chwalcie imię Pana:
-Niech imię Pańskie będzie błogosławione
-odtąd i aż na wieki!
-Od wschodu słońca aż po zachód jego
-niech imię Pańskie będzie pochwalone!
-Pan jest wywyższony ponad wszystkie ludy,
-Jego chwała sięga ponad niebiosa2.
-Któż jak nasz Pan Bóg,
-co siedzibę ma w górze,
-co w dół spogląda
-na niebo i na ziemię?
-Podnosi nędzarza z prochu,
-a dźwiga z gnoju ubogiego3,
-by go posadzić wśród książąt,
-wśród książąt swojego ludu,
-Ten, co niepłodnej każe mieszkać w domu
-jako pełnej radości matce synów4.
+Chwalcie, słudzy Pańscy,  
+chwalcie imię Pana:  
+Niech imię Pańskie będzie błogosławione  
+odtąd i aż na wieki!  
+Od wschodu słońca aż po zachód jego  
+niech imię Pańskie będzie pochwalone!  
+Pan jest wywyższony ponad wszystkie ludy,  
+Jego chwała sięga ponad niebiosa.  
+Któż jak nasz Pan Bóg,  
+co siedzibę ma w górze,  
+co w dół spogląda  
+na niebo i na ziemię?  
+Podnosi nędzarza z prochu,  
+a dźwiga z gnoju ubogiego,  
+by go posadzić wśród książąt,  
+wśród książąt swojego ludu,  
+Ten, co niepłodnej każe mieszkać w domu  
+jako pełnej radości matce synów.

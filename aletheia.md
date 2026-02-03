@@ -13,7 +13,7 @@ Kto Mnie zobaczył, zobaczył także i Ojca. (...) Ja jestem w Ojcu, a Ojciec we
 
 [Jan 14,12-13](https://biblia.deon.pl/rozdzial.php?id=353)  
 Zaprawdę, zaprawdę, powiadam wam: Kto we Mnie [wierzy](/pistis.md), będzie także dokonywał tych dzieł, których Ja dokonuję, owszem, i większe od tych uczyni, bo Ja idę do Ojca.  
-A o cokolwiek prosić będziecie w imię moje, to uczynię, aby Ojciec był otoczony chwałą w Synu.  
+A o cokolwiek prosić będziecie w imię moje, to uczynię, aby Ojciec był otoczony [chwałą](/doxa.md) w Synu.  
 
 [Jan 8,31-32](https://biblia.deon.pl/rozdzial.php?id=347&werset=31#W31)  
 Jeżeli będziecie trwać w nauce mojej, będziecie prawdziwie moimi uczniami i poznacie prawdę, a prawda was [wyzwoli](/eleutheros.md).  
@@ -64,17 +64,16 @@ by cię nie skarał: nie uznał za kłamcę.
 Daj mi poznać drogi Twoje, Panie,  
 i naucz mnie Twoich ścieżek!  
 Prowadź mnie według Twej prawdy i pouczaj,  
-bo Ty jesteś Bóg, mój Zbawca,  
+bo Ty jesteś Bóg, mój [Zbawca](/sozo.md),  
 i w Tobie mam zawsze [nadzieję](/elpis.md).  
-Wspomnij na miłosierdzie Twe, Panie,  
-na łaski Twoje, co trwają od wieków.  
+Wspomnij na [miłosierdzie](/eleos.md) Twe, Panie,  
+na [łaski](/charis.md) Twoje, co trwają od wieków.  
 
 [Efezjan 15](https://biblia.deon.pl/rozdzial.php?id=1031)  
 Natomiast żyjąc prawdziwie w [miłości](/agape.md) sprawmy, by wszystko rosło ku Temu, który jest Głową - ku Chrystusowi  
 
 [Psalm 51,8](https://biblia.deon.pl/rozdzial.php?id=884)  
-Oto Ty masz upodobanie w ukrytej prawdzie,  
-naucz mnie tajników mądrości  
+Oto Ty masz upodobanie w ukrytej prawdzie, naucz mnie tajników [mądrości](/sofia.md).  
 
 [Zachariasz 8,18](https://biblia.deon.pl/rozdzial.php?id=824)  
 Miłujcie prawdę i pokój!

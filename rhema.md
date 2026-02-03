@@ -26,7 +26,15 @@ Utrapił cię, dał ci odczuć głód, żywił cię manną, której nie znałeś
 Słowa, które Ja wam powiedziałem, są duchem i są [życiem](/zoen.md).  
 
 [Efezjan 6,10-18](https://biblia.deon.pl/rozdzial.php?id=1033)  
-W końcu bądźcie mocni w Panu - siłą Jego potęgi. (...) Dlatego weźcie na siebie pełną zbroję Bożą, abyście w dzień zły zdołali się przeciwstawić i ostać, zwalczywszy wszystko. Stańcie więc do walki przepasawszy biodra wasze [prawdą](/aletheia.md) i oblókłszy pancerz, którym jest [sprawiedliwość](/dikaiosyne.md), a obuwszy nogi w gotowość głoszenia [dobrej nowiny](/euaggelion.md) o pokoju. W każdym położeniu bierzcie wiarę jako tarczę, dzięki której zdołacie zgasić wszystkie rozżarzone pociski Złego. Weźcie też hełm zbawienia i miecz Ducha, to jest słowo Boże - wśród wszelakiej modlitwy i błagania. Przy każdej sposobności módlcie się w Duchu!  
+W końcu bądźcie [mocni](/dynamis.md) w Panu - siłą Jego potęgi. (...)
+Weźcie na siebie pełną zbroję Bożą, abyście w dzień zły zdołali się przeciwstawić i ostać, zwalczywszy wszystko.
+Stańcie więc do walki przepasawszy **biodra** wasze [prawdą](/aletheia.md)
+i oblókłszy **pancerz**, którym jest [sprawiedliwość](/dikaiosyne.md),
+a obuwszy **nogi** w gotowość głoszenia [dobrej nowiny](/euaggelion.md) o [pokoju](/eirene.md).
+W każdym położeniu bierzcie [wiarę](/pistis.md) jako **tarczę**,
+dzięki której zdołacie zgasić wszystkie rozżarzone pociski Złego.
+Weźcie też **hełm** [zbawienia](/sozo.md)
+i **miecz** [Ducha](/pneuma.md), to jest słowo Boże - wśród wszelakiej modlitwy.  
 
 [Psalm 1,1-3](https://biblia.deon.pl/rozdzial.php?id=834)  
 Szczęśliwy mąż,  
@@ -50,7 +58,7 @@ Będę się [radował](/chara.md) z Twych ustaw:
 Niech ta Księga Prawa będzie zawsze na twych ustach: rozważaj ją w dzień i w nocy, abyś ściśle spełniał wszystko, co w niej jest napisane, bo tylko wtedy powiedzie ci się i okaże się twoja roztropność.  
 
 [Rzymian 10,17](https://biblia.deon.pl/rozdzial.php?id=279)  
-Wiara rodzi się z tego, co się słyszy, tym zaś, co się słyszy, jest słowo Chrystusa.  
+[Wiara](/pistis.md) rodzi się z tego, co się słyszy, tym zaś, co się słyszy, jest słowo Chrystusa.  
 
 [Jk 1,22-25](https://biblia.deon.pl/rozdzial.php?id=1044)  
 Wprowadzajcie zaś słowo w czyn, a nie bądźcie tylko słuchaczami oszukującymi samych siebie.  
@@ -62,7 +70,7 @@ Wierzcie Mi, że Ja jestem w Ojcu, a Ojciec we Mnie.
 Jeżeli zaś nie - wierzcie przynajmniej ze względu na same dzieła!  
 Zaprawdę, zaprawdę, powiadam wam: Kto we Mnie [wierzy](/pistis.md), będzie także dokonywał tych dzieł, których Ja dokonuję,
 owszem, i większe od tych uczyni, bo Ja idę do Ojca.  
-A o cokolwiek prosić będziecie w imię moje, to uczynię, aby Ojciec był otoczony chwałą w Synu.  
+A o cokolwiek prosić będziecie w imię moje, to uczynię, aby Ojciec był otoczony [chwałą](/doxa.md) w Synu.  
 O cokolwiek prosić mnie będziecie w imię moje, Ja to spełnię.  
 
 [Łukasz 10,38-42](https://biblia.deon.pl/rozdzial.php?id=324)  
@@ -75,6 +83,22 @@ Powiedz jej, żeby mi pomogła».
 A Pan jej odpowiedział:  
 «Marto, Marto, troszczysz się i niepokoisz o wiele, a potrzeba <mało albo> tylko jednego.
 Maria obrała najlepszą cząstkę, której nie będzie pozbawiona»
+
+[Jakub 3,2](https://biblia.deon.pl/rozdzial.php?id=1046)  
+Jeśli kto nie grzeszy mową, jest mężem [doskonałym](/teleios.md), zdolnym utrzymać w ryzach także całe ciało.
+
+[Jakub 1:22-25](https://biblia.deon.pl/rozdzial.php?id=1044)  
+Wprowadzajcie zaś słowo w czyn, a nie bądźcie tylko słuchaczami oszukującymi samych siebie.
+Jeżeli bowiem ktoś przysłuchuje się tylko słowu, a nie wypełnia go,
+podobny jest do człowieka oglądającego w lustrze swe naturalne odbicie.
+Bo przyjrzał się sobie, odszedł i zaraz zapomniał, jakim był.
+Kto zaś pilnie rozważa doskonałe Prawo, Prawo wolności, i wytrwa w nim,
+ten nie jest słuchaczem skłonnym do zapominania, ale wykonawcą dzieła;
+wypełniając je, otrzyma błogosławieństwo.
+
+[Przysłów 18,21](https://biblia.deon.pl/rozdzial.php?id=556)  
+[Życie](/sozo.md) i śmierć są w mocy języka,
+[jak] kto go lubi [używać], tak i spożyje zeń owoc.
 
 [Łukasz 5,3-6](https://biblia.deon.pl/rozdzial.php?id=320)  
 Wszedłszy do jednej łodzi, która należała do Szymona, poprosił go, żeby nieco odbił od brzegu. Potem usiadł i z łodzi nauczał tłumy.

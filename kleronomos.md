@@ -3,7 +3,7 @@
 [Rodzaju 1,27-31](https://biblia.deon.pl/rozdzial.php?id=1)  
 Stworzył więc Bóg człowieka na swój obraz,  
 na obraz Boży go stworzył (...)  
-A Bóg widział, że wszystko, co uczynił, było bardzo dobre.
+A Bóg widział, że wszystko, co uczynił, było bardzo [dobre](/agathosynes.md).
 
 [Izajasz 43,1-5](https://biblia.deon.pl/rozdzial.php?id=515)  
 [Nie lękaj](/elpis.md) się, bo cię wykupiłem,  
@@ -13,7 +13,7 @@ i gdy przez rzeki, nie zatopią ciebie.
 Gdy pójdziesz przez ogień, nie spalisz się,  
 i nie strawi cię płomień.  
 Albowiem Ja jestem Pan, twój Bóg,  
-Święty Izraela, twój Zbawca.  
+[Święty](/hagios.md) Izraela, twój Zbawca.  
 Daję Egipt jako twój okup,  
 Kusz i Sabę w zamian za ciebie.  
 Ponieważ drogi jesteś w moich oczach,  
@@ -33,19 +33,19 @@ I dobrze znasz moją duszę,
 Oto wyryłem cię na obu dłoniach,  
 
 [Efezjan 2,10](https://biblia.deon.pl/rozdzial.php?id=1029)  
-Jesteśmy bowiem Jego dziełem (poematem), stworzeni w Chrystusie Jezusie dla dobrych czynów, które Bóg z góry przygotował, abyśmy je pełnili.  
+Jesteśmy bowiem Jego dziełem (poematem), stworzeni w Chrystusie Jezusie dla [dobrych](/agathosynes.md) czynów, które Bóg z góry przygotował, abyśmy je pełnili.  
 
 [Efezjan 2,18-19](https://biblia.deon.pl/rozdzial.php?id=1029)  
 Bo przez Niego jedni i drudzy w jednym Duchu mamy przystęp do Ojca.  
-A więc nie jesteście już obcymi i przychodniami, ale jesteście współobywatelami świętych i domownikami Boga.  
+A więc nie jesteście już obcymi i przychodniami, ale jesteście współobywatelami [świętych](/hagios.md) i domownikami Boga.  
 
 [Łukasz 11,13](https://biblia.deon.pl/rozdzial.php?id=326)  
-Jeśli więc wy, choć źli jesteście, umiecie dawać dobre dary swoim dzieciom, o ileż bardziej Ojciec z nieba da Ducha Świętego tym, którzy Go proszą.
+Jeśli więc wy, choć źli jesteście, umiecie dawać [dobre](/agathosynes.md) dary swoim dzieciom, o ileż bardziej Ojciec z nieba da Ducha Świętego tym, którzy Go proszą.
 
 [Rzymian 8,14-17](https://biblia.deon.pl/rozdzial.php?id=277)  
 Albowiem wszyscy ci, których prowadzi Duch Boży, są synami Bożymi.  
 Nie otrzymaliście przecież ducha [niewoli](/eleutheros.md), by się znowu pogrążyć w bojaźni, ale otrzymaliście ducha przybrania za synów, w którym możemy wołać: «Abba, Ojcze!»  
 Sam Duch wspiera swym świadectwem naszego ducha, że jesteśmy dziećmi Bożymi.  
-Jeżeli zaś jesteśmy dziećmi, to i dziedzicami: dziedzicami Boga, a współdziedzicami Chrystusa, skoro wspólnie z Nim cierpimy po to, by też wspólnie mieć udział w chwale.  
+Jeżeli zaś jesteśmy dziećmi, to i dziedzicami: dziedzicami Boga, a współdziedzicami Chrystusa, skoro wspólnie z Nim cierpimy po to, by też wspólnie mieć udział w [chwale](/doxa.md).  
 
 ![Dziećmi, dziedzicami Boga](/assets/img/Rzym_8_dziedzic_krolestwa.jpg)

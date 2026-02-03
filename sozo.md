@@ -16,7 +16,7 @@ Jesteśmy bowiem Jego dziełem, stworzeni w Chrystusie Jezusie dla dobrych czyn�
 które Bóg z góry przygotował, abyśmy je pełnili.
 
 [Rzymian 10,9-10](https://biblia.deon.pl/rozdzial.php?id=279#W9)  
-Jeżeli więc ustami swoimi wyznasz, że JEZUS JEST PANEM, i w [sercu](/sozo.md) swoim [uwierzysz](/pistis.md),
+Jeżeli więc ustami swoimi wyznasz, że JEZUS JEST PANEM, i w [sercu](/cardia.md) swoim [uwierzysz](/pistis.md),
 że Bóg Go wskrzesił z martwych - osiągniesz [zbawienie](/sozo.md). 
 Bo [sercem](/cardia.md) przyjęta [wiara](/pistis.md) prowadzi do [usprawiedliwienia](/dikaiosyne.md), a wyznawanie jej ustami - do [zbawienia](/sozo.md)
 

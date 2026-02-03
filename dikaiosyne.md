@@ -15,7 +15,7 @@ w której trwamy i chlubimy się [nadzieją](/elpis.md) [chwały](/doxa.md) Boż
 Ale teraz jawną się stała sprawiedliwość Boża niezależna od Prawa,
 poświadczona przez Prawo i Proroków.
 Jest to sprawiedliwość Boża przez wiarę w Jezusa Chrystusa dla wszystkich, którzy wierzą.
-Bo nie ma tu różnicy: wszyscy bowiem zgrzeszyli i pozbawieni są chwały Bożej,
+Bo nie ma tu różnicy: wszyscy bowiem zgrzeszyli i pozbawieni są [chwały](/doxa.md) Bożej,
 a dostępują usprawiedliwienia darmo, z Jego łaski,
 przez odkupienie które jest w Chrystusie Jezusie.
 Jego to ustanowił Bóg narzędziem przebłagania przez wiarę mocą Jego krwi.

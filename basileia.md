@@ -326,7 +326,7 @@ a [miłość](/agape.md) wzajemna u każdego z was obfituje,
 i to tak, że my sami w Kościołach Bożych chlubimy się wami
 z powodu waszej [wytrwałości](/hypomenes.md) i [wiary](pistis.md) we wszystkich waszych prześladowaniach
 i uciskach, które znosicie.
-Są one zapowiedzią sprawiedliwego sądu Boga;
+Są one zapowiedzią [sprawiedliwego](/dikaiosyne.md) sądu Boga;
 celem jego jest uznanie was za godnych królestwa Bożego,
 za które też cierpicie.  
 

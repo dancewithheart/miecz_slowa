@@ -19,7 +19,7 @@ A o cokolwiek prosić będziecie w imię moje, to uczynię, aby Ojciec był otoc
 Jeżeli będziecie trwać w nauce mojej, będziecie prawdziwie moimi uczniami i poznacie prawdę, a prawda was [wyzwoli](/eleutheros.md).  
 
 [Psalm 119,160](https://biblia.deon.pl/rozdzial.php?id=952)  
-Podstawą Twego słowa jest prawda, i wieczny jest każdy Twój sprawiedliwy wyrok.
+Podstawą Twego słowa jest prawda, i wieczny jest każdy Twój [sprawiedliwy](/dikaiosyne.md) wyrok.
 
 [Liczb 23,19](https://biblia.deon.pl/rozdzial.php?id=162)  
 Bóg nie jest jak człowiek, by kłamał,  

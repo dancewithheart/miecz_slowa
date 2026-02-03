@@ -28,12 +28,12 @@ Aby na ziemi znano Jego drogę,
 Jego [zbawienie](/sozo.md) - pośród wszystkich ludów.
 
 Niech Ciebie, Boże, wysławiają ludy,
-niech wszystkie narody dają Ci chwałę!
+niech wszystkie narody dają Ci [chwałę](/doxa.md)!
 Niech się narody cieszą i weselą,
-że Ty ludami rządzisz sprawiedliwie
+że Ty ludami rządzisz [sprawiedliwie](/dikaiosyne.md)
 i kierujesz narodami na ziemi.
 Niech Ciebie, Boże wysławiają ludy,
-niech wszystkie narody dają Ci chwałę!
+niech wszystkie narody dają Ci [chwałę](/doxa.md)!
 
 Ziemia wydała swój owoc:
 Bóg, nasz Bóg, nam pobłogosławił.

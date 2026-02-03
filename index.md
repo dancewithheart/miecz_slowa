@@ -17,6 +17,7 @@ Jeżeli będziecie trwać w nauce mojej, będziecie prawdziwie moimi uczniami i 
 * [rozczarowanie, rozgoryczenie → uwielbienie, wdzięczność](/eucharisteo.md)
 * [uzależnienie, zniewolenie błędami, grzechem → wolność, uwolnienie](/eleutheros.md)
 * [pycha → pokora](/tapeinos.md)
+* [prośba o dzieci](/teknα.md)
 
 # słowo Boże
 
@@ -91,7 +92,7 @@ Albowiem w Chrystusie Jezusie ani obrzezanie, ani jego brak nie mają żadnego z
 [Wiara](/pistis.md) rodzi się z tego, co się słyszy, tym zaś, co się słyszy, jest [słowo](/rhema.md) Chrystusa.
 
 [Rzymian 1,17](https://biblia.deon.pl/rozdzial.php?id=270#W17) ([Galatów 3,10-12](https://biblia.deon.pl/rozdzial.php?id=1016&werset=10#W10), [Hebrajczyków 10,36-38](https://biblia.deon.pl/rozdzial.php?id=374&werset=36#W36), [Habakuk 2,4](https://biblia.deon.pl/rozdzial.php?id=810&werset=4#W4), [Kapłańska 18,4-5](https://biblia.deon.pl/rozdzial.php?id=110&werset=4#W4))  
-W niej bowiem objawia się sprawiedliwość Boża, która od wiary wychodzi i ku wierze prowadzi,
+W niej bowiem objawia się [sprawiedliwość](/dikaiosyne.md) Boża, która od [wiary](/pistis.md) wychodzi i ku [wierze](/pistis.md) prowadzi,
 jak jest napisane: a [sprawiedliwy](/dikaiosyne.md) z wiary [żyć](/zoen.md) będzie.
 
 [Ew. Marka 11,23-24](https://biblia.deon.pl/rozdzial.php?id=310#W23)  
@@ -143,7 +144,7 @@ które Bóg z góry przygotował, abyśmy je pełnili.
 
 [Rzymian 3,21-24](https://biblia.deon.pl/rozdzial.php?id=272)  
 Ale teraz jawną się stała [sprawiedliwość](/dikaiosyne.md) Boża niezależna od Prawa, poświadczona przez Prawo i Proroków.
-Jest to sprawiedliwość Boża przez [wiarę](/pistis.md) w Jezusa Chrystusa dla wszystkich, którzy wierzą.
+Jest to [sprawiedliwość](/dikaiosyne.md) Boża przez [wiarę](/pistis.md) w Jezusa Chrystusa dla wszystkich, którzy wierzą.
 Bo nie ma tu różnicy: wszyscy bowiem zgrzeszyli i pozbawieni są [chwały](/doxa.md) Bożej,
 a dostępują [usprawiedliwienia](/dikaiosyne.md) darmo, z Jego [łaski](/charis.md), przez odkupienie które jest w Chrystusie Jezusie.
 
@@ -162,12 +163,12 @@ A to pochodzi nie od was, lecz jest darem Boga:
 nie z uczynków, aby się nikt nie chlubił.
 
 [Rzymian 10,9-10](https://biblia.deon.pl/rozdzial.php?id=279#W9)  
-Jeżeli więc ustami swoimi wyznasz, że JEZUS JEST PANEM, i w [sercu](/sozo.md) swoim [uwierzysz](/pistis.md),
+Jeżeli więc ustami swoimi wyznasz, że JEZUS JEST PANEM, i w [sercu](/cardia.md) swoim [uwierzysz](/pistis.md),
 że Bóg Go wskrzesił z martwych - osiągniesz [zbawienie](/sozo.md).
 Bo [sercem](/cardia.md) przyjęta [wiara](/pistis.md) prowadzi do [usprawiedliwienia](/dikaiosyne.md), a wyznawanie jej ustami - do [zbawienia](/sozo.md)
 
 [Izajasz 12,2](https://biblia.deon.pl/rozdzial.php?id=484)  
-Oto Bóg jest zbawieniem moim!  
+Oto Bóg jest [zbawieniem](/sozo.md) moim!  
 Będę miał ufność i nie ulęknę się,  
 bo mocą moją i pieśnią moją jest Pan.  
 
@@ -212,7 +213,7 @@ Bo ja nie wstydzę się [Ewangelii](/euaggelion.md), jest bowiem ona [mocą Boż
 W niej bowiem objawia się [sprawiedliwość](/dikaiosyne.md) Boża, która od [wiary](pistis.md) wychodzi i ku [wierze](/pistis.md) prowadzi, jak jest napisane:
 a [sprawiedliwy](/dikaiosyne.md) z wiary [żyć](/zoen.md) będzie.
 
-[Efezjan 1,18-19](https://biblia.deon.pl/rozdzial.php?id=1028)
+[Efezjan 1,18-19](https://biblia.deon.pl/rozdzial.php?id=1028)  
 [Niech da] wam światłe oczy [serca](/cardia.md) tak, byście wiedzieli,
 czym jest [nadzieja](/elpis.md) waszego powołania,
 czym bogactwo [chwały](/doxa.md) Jego [dziedzictwa](/kleronomos.md) wśród [świętych](/teleios.md)
@@ -220,19 +221,19 @@ i czym przemożny ogrom [Jego mocy](/dynamis.md) względem nas [wierzących](/pi
 działania Jego potęgi i siły.
 
 [Dzieje 1,3](https://biblia.deon.pl/rozdzial.php?id=378)  
-gdy Duch Święty zstąpi na was, otrzymacie [Jego moc](/dynamis.md) i będziecie moimi świadkami6
+gdy Duch Święty zstąpi na was, otrzymacie [Jego moc](/dynamis.md) i będziecie moimi świadkami
 w Jerozolimie i w całej Judei,
 i w Samarii, i aż po krańce ziemi.
 
 # chwała
 
 [Rzymian 8,18](https://biblia.deon.pl/rozdzial.php?id=277)  
-Cierpień teraźniejszych nie można stawiać na równi z chwałą, która ma się w nas objawić
+Cierpień teraźniejszych nie można stawiać na równi z [chwałą](/doxa.md), która ma się w nas objawić
 
 [Jan 1,14](https://biblia.deon.pl/rozdzial.php?id=340)  
 A [Słowo](/rhema.md) stało się ciałem i zamieszkało wśród nas.
-I oglądaliśmy Jego chwałę, chwałę, jaką Jednorodzony otrzymuje od Ojca,
-pełen [łaski](/charis.md) i prawdy.
+I oglądaliśmy Jego [chwałę](/doxa.md), chwałę, jaką Jednorodzony otrzymuje od Ojca,
+pełen [łaski](/charis.md) i [prawdy](/aletheia.md).
 
 [2 Koryntian 3,18](https://biblia.deon.pl/rozdzial.php?id=997)  
 My wszyscy z odsłoniętą twarzą wpatrujemy się w [jasność (chwałę)](/doxa.md) Pańską jakby w zwierciadle;
@@ -268,6 +269,12 @@ Błogosławieni, którzy wprowadzają [pokój](/eirene.md), albowiem oni będą 
 Błogosławieni, którzy cierpią prześladowanie dla [sprawiedliwości](/dikaiosyne.md), albowiem do nich należy [królestwo niebieskie](/basileia.md).  
 Błogosławieni jesteście, gdy [ludzie] wam urągają i prześladują was, i gdy z mego powodu mówią kłamliwie wszystko złe na was.  
 Cieszcie się i radujcie, albowiem wasza nagroda wielka jest w niebie. Tak bowiem prześladowali proroków, którzy byli przed wami.
+
+[Izajasz 41,10](https://biblia.deon.pl/rozdzial.php?id=513)  
+Nie lękaj się, bo Ja jestem z tobą;  
+nie trwóż się, bom Ja twoim Bogiem.  
+Umacniam cię, jeszcze i wspomagam,  
+podtrzymuję cię moją prawicą [sprawiedliwą](/dikaiosyne.md).
 
 # Bóg posyła
 

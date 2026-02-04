@@ -16,7 +16,7 @@ Niech panuje nad rybami morskimi, nad ptactwem powietrznym,
 nad bydłem, nad ziemią i nad wszystkimi zwierzętami pełzającymi po ziemi!»  
 Stworzył więc Bóg człowieka na swój obraz, na obraz Boży go stworzył:  
 stworzył mężczyznę i niewiastę.  
-Po czym Bóg im błogosławił, mówiąc do nich:  
+Po czym Bóg im [błogosławił](/eulogia.md), mówiąc do nich:  
 «Bądźcie płodni i rozmnażajcie się, abyście zaludnili ziemię i uczynili ją sobie poddaną;
 abyście panowali nad rybami morskimi, nad ptactwem powietrznym i nad wszystkimi zwierzętami pełzającymi po ziemi»
 
@@ -66,7 +66,7 @@ Pan Bóg sporządził dla mężczyzny i dla jego żony odzienie ze skór i przyo
 ## Noe
 
 [Rodzaju 9,1-7](https://biblia.deon.pl/rozdzial.php?id=9)  
-Po czym Bóg pobłogosławił Noego i jego synów, mówiąc do nich:  
+Po czym Bóg [pobłogosławił](/eulogia.md) Noego i jego synów, mówiąc do nich:  
 «Bądźcie płodni i mnóżcie się, abyście zaludnili ziemię.
 Wszelkie zaś zwierzę na ziemi i wszelkie ptactwo powietrzne niechaj się was boi i lęka.
 Wszystko, co się porusza na ziemi i wszystkie ryby morskie zostały oddane wam we władanie.
@@ -80,11 +80,11 @@ przez ludzi ma być przelana krew jego,
 bo człowiek został stworzony na obraz Boga.
 Wy zaś bądźcie płodni i mnóżcie się; zaludniajcie ziemię i miejcie nad nią władzę».  
 Potem Bóg tak rzekł do Noego i do jego synów:  
-«Ja, Ja zawieram przymierze z wami i z waszym potomstwem, które po was będzie;
+«Ja, Ja zawieram [przymierze](/berit.md) z wami i z waszym potomstwem, które po was będzie;
 z wszelką istotą żywą, która jest z wami:
 z ptactwem, ze zwierzętami domowymi i polnymi, jakie są przy was, ze wszystkimi,
 które wyszły z arki, z wszelkim zwierzęciem na ziemi.
-Zawieram z wami przymierze, tak iż nigdy już nie zostanie zgładzona wodami potopu żadna istota żywa
+Zawieram z wami [przymierze](/eulogia.md), tak iż nigdy już nie zostanie zgładzona wodami potopu żadna istota żywa
 i już nigdy nie będzie potopu niszczącego ziemię».  
 Po czym Bóg dodał:  
 «A to jest znak przymierza, które ja zawieram z wami i każdą istotą żywą,
@@ -106,10 +106,10 @@ Rzekł Bóg do Noego:
 Pan rzekł do Abrama:  
 «Wyjdź z twojej ziemi rodzinnej i z domu twego ojca do kraju, który ci ukażę.  
 Uczynię bowiem z ciebie wielki naród, będę ci [błogosławił](./eulogia.md) i twoje imię rozsławię:
-staniesz się błogosławieństwem.  
-Będę błogosławił tym, którzy ciebie błogosławić będą,  
+staniesz się [błogosławieństwem](/eulogia.md).  
+Będę [błogosławił](/eulogia.md) tym, którzy ciebie błogosławić będą,  
 a tym, którzy tobie będą złorzeczyli, i ja będę złorzeczył.  
-Przez ciebie będą otrzymywały błogosławieństwo ludy całej ziemi».  
+Przez ciebie będą otrzymywały [błogosławieństwo](/eulogia.md) ludy całej ziemi».  
 Abram udał się w drogę, jak mu Pan rozkazał, a z nim poszedł i Lot.
 Abram miał siedemdziesiąt pięć lat, gdy wyszedł z Charanu. (...)   
 Gdy zaś przybyli do Kanaanu,
@@ -192,7 +192,7 @@ taki człowiek niechaj będzie usunięty ze społeczności twojej;
 zerwał on bowiem przymierze ze Mną».  
 I mówił Bóg do Abrahama:  
 «Żony twej nie będziesz nazywał imieniem Saraj, lecz imię jej będzie Sara.
-Błogosławiąc jej, dam ci i z niej syna, i będę jej nadal błogosławił,
+[Błogosławiąc](/eulogia.md) jej, dam ci i z niej syna, i będę jej nadal błogosławił,
 tak że stanie się ona matką ludów i królowie będą jej potomkami».
 
 [Rodzaju 22](https://biblia.deon.pl/rozdzial.php?id=22) **Izaak**  
@@ -231,7 +231,7 @@ I dał Abraham miejscu temu nazwę "Pan widzi". (...)
 Anioł Pański przemówił głośno z nieba do Abrahama po raz drugi:  
 «Przysięgam na siebie, wyrocznia Pana, że ponieważ uczyniłeś to,
 a nie oszczędziłeś syna twego jedynego,
-będę ci błogosławił i dam ci potomstwo tak liczne jak gwiazdy na niebie
+będę ci [błogosławił](/eulogia.md) i dam ci potomstwo tak liczne jak gwiazdy na niebie
 i jak ziarnka piasku na wybrzeżu morza; potomkowie twoi zdobędą warownie swych nieprzyjaciół.
 Wszystkie ludy ziemi będą sobie życzyć szczęścia [takiego, jakie jest udziałem] twego potomstwa,
 dlatego że usłuchałeś mego rozkazu».
@@ -307,7 +307,7 @@ ani twój niewolnik, ani twoja niewolnica, ani twoje bydło, ani cudzoziemiec,
 który mieszka pośród twych bram.
 W sześciu dniach bowiem uczynił Pan niebo, ziemię, morze oraz wszystko, co jest w nich,
 w siódmym zaś dniu odpoczął.
-Dlatego pobłogosławił Pan dzień szabatu i uznał go za święty.
+Dlatego [pobłogosławił](/eulogia.md) Pan dzień szabatu i uznał go za święty.
 Czcij ojca twego i matkę twoją, abyś długo żył na ziemi, którą Pan, Bóg twój, da tobie.
 Nie będziesz zabijał.
 Nie będziesz cudzołożył.
@@ -332,7 +332,7 @@ Rzekł nadto Pan do Mojżesza:
 Nie będziecie sporządzać obok Mnie bożków ze srebra ani bożków ze złota nie będziecie sobie czynić.
 Uczynisz Mi ołtarz z ziemi i będziesz składał na nim twoje całopalenia,
 twoje ofiary biesiadne z twojej trzody i z bydła na każdym miejscu,
-gdzie każę ci wspominać moje imię. Przyjdę do ciebie i będę ci błogosławił. (...)
+gdzie każę ci wspominać moje imię. Przyjdę do ciebie i będę ci [błogosławił](/eulogia.md). (...)
 
 [Wyjścia 21-23](https://biblia.deon.pl/rozdzial.php?id=71) **prawo przekazane Mojżesz**
 
@@ -487,7 +487,7 @@ Wtedy będziecie mieszkać w kraju, który dałem waszym przodkom,
 i będziecie moim ludem, a Ja będę waszym Bogiem.  
 
 [Mateusz 26,26-28](https://biblia.deon.pl/rozdzial.php?id=362), [Marek 14,22-25](https://biblia.deon.pl/rozdzial.php?id=313&werset=22#W22), [Łukasz 22,19](https://biblia.deon.pl/rozdzial.php?id=337&werset=19#W19), [1 Koryntian 11,23-26](https://biblia.deon.pl/rozdzial.php?id=296&werset=23#W23)  
-A gdy oni jedli, Jezus wziął chleb i odmówiwszy błogosławieństwo, połamał i dał uczniom, mówiąc:  
+A gdy oni jedli, Jezus wziął chleb i odmówiwszy [błogosławieństwo](/eulogia.md), połamał i dał uczniom, mówiąc:  
 «Bierzcie i jedzcie, to jest Ciało moje».  
 Następnie wziął kielich i odmówiwszy [dziękczynienie](/eucharisteo.md), dał im, mówiąc:  
 «Pijcie z niego wszyscy, bo to jest moja Krew [Przymierza](/berit.md),

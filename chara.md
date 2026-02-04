@@ -2,8 +2,6 @@
 
 [Wit Chlondowski - Zacznij MEDYTOWAĆ - smutek #5](https://www.youtube.com/watch?v=7U_edzMJyvI&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=5)  
 
-Greckie słowo: χαρα (chara) [strong 5479](https://biblia.oblubienica.eu/wystepowanie/strong/id/5479)  
-
 [Jan 16,6-7](https://biblia.deon.pl/rozdzial.php?id=355)  
 Ale ponieważ to wam powiedziałem, smutek napełnił wam [serce](/cardia.md).  
 Jednakże mówię wam prawdę: Pożyteczne jest dla was moje odejście. Bo jeżeli nie odejdę, Pocieszyciel nie przyjdzie do was.
@@ -49,7 +47,7 @@ olejek radości zamiast szaty smutku,
 pieśń [chwały](/doxa.md) zamiast zgnębienia na duchu.
 
 [2 Koryntian 1,3-5](https://biblia.deon.pl/rozdzial.php?id=995)  
-Błogosławiony Bóg i Ojciec Pana naszego Jezusa Chrystusa, Ojciec miłosierdzia i Bóg wszelkiej pociechy,  
+[Błogosławiony](/eulogia.md) Bóg i Ojciec Pana naszego Jezusa Chrystusa, Ojciec miłosierdzia i Bóg wszelkiej pociechy,  
 Ten, który nas pociesza w każdym naszym utrapieniu, byśmy sami mogli pocieszać tych, co są w jakiejkolwiek udręce, pociechą, której doznajemy od Boga.  
 Jak bowiem obfitują w nas cierpienia Chrystusa, tak też wielkiej doznajemy przez Chrystusa pociechy.
 
@@ -106,3 +104,5 @@ by moje [serce](/cardia.md) nie milknąc psalm Tobie śpiewało.
 Boże mój, Panie, będę Cię wysławiał na wieki.  
 
 ![Płacz mój zmieniłeś w taniec](/assets/img/Ps_30_taniec.jpg)
+
+Greckie słowo: χαρα (chara) [strong 5479](https://biblia.oblubienica.eu/wystepowanie/strong/id/5479)

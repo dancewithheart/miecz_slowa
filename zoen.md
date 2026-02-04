@@ -27,9 +27,9 @@ Teraz jednak dla tych, którzy są w Chrystusie Jezusie, nie ma już potępienia
 Ci bowiem, którzy żyją według ciała, dążą do tego, czego chce ciało; ci zaś, którzy żyją według Ducha - do tego, czego chce Duch. Dążność bowiem ciała prowadzi do śmierci, dążność zaś Ducha - do życia i pokoju. A to dlatego, że dążność ciała wroga jest Bogu, nie podporządkowuje się bowiem Prawu Bożemu, ani nawet nie jest do tego zdolna. A ci, którzy żyją według ciała, Bogu podobać się nie mogą. Wy jednak nie żyjecie według ciała, lecz według Ducha, jeśli tylko Duch Boży w was mieszka. Jeżeli zaś kto nie ma Ducha Chrystusowego, ten do Niego nie należy.  
 
 [Psalm 103,1-5](https://biblia.deon.pl/rozdzial.php?id=936)  
-Błogosław, duszo moja, Pana,  
+[Błogosław](/eulogia.md), duszo moja, Pana,  
 i całe moje wnętrze - [święte](/hagios.md) imię Jego!  
-Błogosław, duszo moja, Pana,  
+[Błogosław](/eulogia.md), duszo moja, Pana,  
 i nie zapominaj o wszystkich Jego dobrodziejstwach!  
 On odpuszcza wszystkie twoje winy,  
 On leczy wszystkie twe niemoce,  

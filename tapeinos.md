@@ -1,7 +1,5 @@
 ## pokora
 
-Greckie słowo: ταπεινοφροσύνη (tapeinophrosunē) [strong 5012](http://biblia.oblubienica.eu/wystepowanie/strong/id/5012)
-
 [Mateusz 11,28-30](https://biblia.deon.pl/rozdzial.php?id=254)  
 Przyjdźcie do Mnie wszyscy, którzy utrudzeni i obciążeni jesteście, a Ja was pokrzepię.
 Weźcie moje jarzmo na siebie i uczcie się ode Mnie, bo jestem [łagodny](/praotes.md) i [pokorny](/tapeinos.md) [sercem](/cardia.md), a znajdziecie ukojenie dla dusz waszych.
@@ -57,3 +55,5 @@ Dałem wam bowiem przykład, abyście i wy tak czynili, jak Ja wam uczyniłem.
 [Łukasz 17,10](https://biblia.deon.pl/rozdzial.php?id=332)  
 Tak mówcie i wy, gdy uczynicie wszystko, co wam polecono:  
 "Słudzy nieużyteczni jesteśmy; wykonaliśmy to, co powinniśmy wykonać"».
+
+Greckie słowo: ταπεινοφροσύνη (tapeinophrosunē) [strong 5012](http://biblia.oblubienica.eu/wystepowanie/strong/id/5012)

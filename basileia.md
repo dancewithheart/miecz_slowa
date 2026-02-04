@@ -1,7 +1,5 @@
 ## Królestwo Boże
 
-Greckie słowo: βασιλεια (basileia) [strong 932](https://biblia.oblubienica.eu/wystepowanie/strong/id/932)  
-
 [Łukasz 16,16](https://biblia.deon.pl/rozdzial.php?id=331)  
 Aż do Jana sięgało Prawo i Prorocy; odtąd głosi się [Dobrą Nowinę](/euaggelion.md) o królestwie Bożym, i każdy gwałtem wdziera się do niego.
 
@@ -191,7 +189,7 @@ Tych zaś przeciwników moich, którzy nie chcieli, żebym panował nad nimi, pr
 ![Przypowieść o talentach](/assets/img/Lu19_talenty2.jpg)
 
 [Mateusz 5,3-12](https://biblia.deon.pl/rozdzial.php?id=248), [Łukasz 6,20-23](https://biblia.deon.pl/rozdzial.php?id=321)  
-Błogosławieni ubodzy w duchu, albowiem do nich należy królestwo niebieskie.  
+[Błogosławieni](/eulogia.md) ubodzy w duchu, albowiem do nich należy królestwo niebieskie.  
 Błogosławieni, którzy się [smucą](/chara.md), albowiem oni będą pocieszeni.  
 Błogosławieni cisi, albowiem oni na własność posiądą ziemię.  
 Błogosławieni, którzy łakną i pragną [sprawiedliwości](/dikaiosyne.md), albowiem oni będą nasyceni.  
@@ -383,4 +381,6 @@ Tymczasem to należało czynić, i tamtego nie opuszczać.
 Biada wam, faryzeuszom, bo lubicie pierwsze miejsce w synagogach i pozdrowienia na rynku. 
 
 [Łukasz 12,8](https://biblia.deon.pl/rozdzial.php?id=327)  
-Kto się przyzna do Mnie wobec ludzi, przyzna się i Syn Człowieczy do niego wobec aniołów Bożych; a kto się Mnie wyprze wobec ludzi, tego wyprę się i Ja wobec aniołów Bożych.  
+Kto się przyzna do Mnie wobec ludzi, przyzna się i Syn Człowieczy do niego wobec aniołów Bożych; a kto się Mnie wyprze wobec ludzi, tego wyprę się i Ja wobec aniołów Bożych.
+
+Greckie słowo: βασιλεια (basileia) [strong 932](https://biblia.oblubienica.eu/wystepowanie/strong/id/932)

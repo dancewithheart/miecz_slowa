@@ -1,10 +1,5 @@
 ## rozczarowanie, rozgoryczenie → uwielbienie, wdzięczność
 
-Hebrajski:  
-// yadah [3034 biblehub](https://biblehub.com/hebrew/3034.htm) [114 wystąpień](https://biblehub.com/hebrew/strongs_3034.htm)  
-// todah [8426 biblehub](https://biblehub.com/hebrew/8426.htm) [32 wystąpień](https://biblehub.com/hebrew/strongs_8426.htm)  
-Grecki: /εὐχαριστία/ eucharistia [2169 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/2169) [15 wystąpień](https://biblehub.com/greek/strongs_2169.htm)
-
 [Psalm 42,12](https://biblia.deon.pl/rozdzial.php?id=875)  
 Czemu jesteś zgnębiona, moja duszo,  
 i czemu jęczysz we mnie?  
@@ -33,7 +28,7 @@ Niech będzie imię Pańskie [błogosławione](/eulogia.md)!»
 [Psalm 103,1-5](https://biblia.deon.pl/rozdzial.php?id=936)  
 [Błogosław](/eulogia.md), duszo moja, Pana,  
 i całe moje wnętrze - [święte](/hagios.md) imię Jego!  
-Błogosław, duszo moja, Pana,  
+[Błogosław](/eulogia.md), duszo moja, Pana,  
 i nie zapominaj o wszystkich Jego dobrodziejstwach!  
 On odpuszcza wszystkie twoje winy,  
 On leczy wszystkie twe niemoce,  
@@ -99,3 +94,8 @@ a [wierność](/pistis.md) Jego przez pokolenia.
 Przemawiając do siebie wzajemnie w psalmach i hymnach, i pieśniach pełnych ducha,
 śpiewając i wysławiając Pana w waszych [sercach](/cardia.md).
 Dziękujcie zawsze za wszystko Bogu Ojcu w imię Pana naszego Jezusa Chrystusa!
+
+Hebrajski:  
+// yadah [3034 biblehub](https://biblehub.com/hebrew/3034.htm) [114 wystąpień](https://biblehub.com/hebrew/strongs_3034.htm)  
+// todah [8426 biblehub](https://biblehub.com/hebrew/8426.htm) [32 wystąpień](https://biblehub.com/hebrew/strongs_8426.htm)  
+Grecki: /εὐχαριστία/ eucharistia [2169 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/2169) [15 wystąpień](https://biblehub.com/greek/strongs_2169.htm)

@@ -94,7 +94,7 @@ podobny jest do człowieka oglądającego w lustrze swe naturalne odbicie.
 Bo przyjrzał się sobie, odszedł i zaraz zapomniał, jakim był.
 Kto zaś pilnie rozważa doskonałe Prawo, Prawo wolności, i wytrwa w nim,
 ten nie jest słuchaczem skłonnym do zapominania, ale wykonawcą dzieła;
-wypełniając je, otrzyma błogosławieństwo.
+wypełniając je, otrzyma [błogosławieństwo](/eulogia.md).
 
 [Przysłów 18,21](https://biblia.deon.pl/rozdzial.php?id=556)  
 [Życie](/sozo.md) i śmierć są w mocy języka,

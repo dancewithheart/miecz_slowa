@@ -1,9 +1,5 @@
 ## zwątpienie → wiara
 
-Hebrajski: /אָמַן/ aman [539 biblehub](https://biblehub.com/hebrew/539.htm) [108 wystąpień](https://biblehub.com/hebrew/strongs_539.htm)
- // emunah [530 biblehub](https://biblehub.com/hebrew/530.htm) [49 wystąpień](https://biblehub.com/hebrew/strongs_530.htm)
-Grecki: /πιστις/ pistis [4102 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/4102) [243 wystąpień](https://biblehub.com/greek/strongs_4102.htm)  
-
 [Hebrajczyków 11,1](https://biblia.deon.pl/rozdzial.php?id=375#W1)  
 Wiara zaś jest poręką tych dóbr, których się spodziewamy, dowodem tych rzeczywistości, których nie widzimy.
 
@@ -66,3 +62,7 @@ Niech zaś prosi z wiarą, a nie wątpi o niczym! Kto bowiem żywi wątpliwości
 Człowiek ten niech nie myśli, że otrzyma cokolwiek od Pana, bo jest mężem chwiejnym, niestałym we wszystkich swych drogach.  
 
 ![Kto powie do gory rzuc sie w morze](/assets/img/Mk11_23_gora_w_morze.jpg)
+
+Hebrajski: /אָמַן/ aman [539 biblehub](https://biblehub.com/hebrew/539.htm) [108 wystąpień](https://biblehub.com/hebrew/strongs_539.htm)  
+// emunah [530 biblehub](https://biblehub.com/hebrew/530.htm) [49 wystąpień](https://biblehub.com/hebrew/strongs_530.htm)  
+Grecki: /πιστις/ pistis [4102 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/4102) [243 wystąpień](https://biblehub.com/greek/strongs_4102.htm)  

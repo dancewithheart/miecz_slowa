@@ -6,7 +6,6 @@ title: Miecz Ducha - Słowo Boże
 [Jan 8,31](https://biblia.deon.pl/rozdzial.php?id=347)  
 Jeżeli będziecie trwać w nauce mojej, będziecie prawdziwie moimi uczniami i poznacie [prawdę](/aletheia.md), a [prawda](/aletheia.md) was [wyzwoli](/eleutheros.md).
 
-
 * [gniew → miłość](agape.md)
 * [smutek → zaufanie Bogu, radość](/chara.md)
 * [samotność → bliskość Boga](/closeness.md)
@@ -269,7 +268,7 @@ na wyżynach niebieskich - w Chrystusie.
 i abyśmy przez [wiarę](/pistis.md) otrzymali obiecanego Ducha.
 
 [Mateusz 5,3-12](https://biblia.deon.pl/rozdzial.php?id=248), [Łukasz 6,20-23](https://biblia.deon.pl/rozdzial.php?id=321)  
-Błogosławieni ubodzy w duchu, albowiem do nich należy [królestwo niebieskie](basileia.md).  
+[Błogosławieni](/eulogia.md) ubodzy w duchu, albowiem do nich należy [królestwo niebieskie](basileia.md).  
 Błogosławieni, którzy się [smucą](/chara.md), albowiem oni będą pocieszeni.  
 Błogosławieni cisi, albowiem oni na własność posiądą ziemię.  
 Błogosławieni, którzy łakną i pragną [sprawiedliwości](/dikaiosyne.md), albowiem oni będą nasyceni.  
@@ -306,15 +305,15 @@ Potem Bóg rzekł do Abrahama:
 «Ty zaś, a po tobie twoje potomstwo przez wszystkie pokolenia, zachowujcie przymierze ze Mną.
 Przymierze, które będziecie zachowywali między Mną a wami, czyli twoim przyszłym potomstwem, polega na tym:
 wszyscy wasi mężczyźni mają być obrzezani;
-będziecie obrzezywali ciało napletka na znak przymierza waszego ze Mną.
+będziecie obrzezywali ciało napletka na znak [przymierza](/eulogia.md) waszego ze Mną.
 Z pokolenia w pokolenie każde wasze dziecko płci męskiej, gdy będzie miało osiem dni,
 ma być obrzezane - sługa urodzony w waszym domu lub nabyty za pieniądze - każdy obcy,
 który nie jest potomkiem twoim - ma być obrzezany;
 obrzezany ma być sługa urodzony w domu twoim lub nabyty za pieniądze.
-Przymierze moje, przymierze obrzezania, będzie przymierzem na zawsze.
+[Przymierze](/eulogia.md) moje, przymierze obrzezania, będzie przymierzem na zawsze.
 Nieobrzezany, czyli mężczyzna, któremu nie obrzezano ciała jego napletka,
 taki człowiek niechaj będzie usunięty ze społeczności twojej;
-zerwał on bowiem przymierze ze Mną».
+zerwał on bowiem [przymierze](/eulogia.md) ze Mną».
 
 [Wyjścia 19,3-25](https://biblia.deon.pl/rozdzial.php?id=69) - [Wyjścia 20,1-24](https://biblia.deon.pl/rozdzial.php?id=70) **Mojżesz przymierze**  
 Mojżesz wstąpił wtedy do Boga, a Pan zawołał na niego z góry i powiedział:  
@@ -347,7 +346,7 @@ Dzień zaś siódmy jest szabatem ku czci Pana, Boga twego.
 Nie możesz przeto w dniu tym wykonywać żadnej pracy (...).  
 W sześciu dniach bowiem uczynił Pan niebo, ziemię, morze oraz wszystko, co jest w nich,
 w siódmym zaś dniu odpoczął.
-Dlatego pobłogosławił Pan dzień szabatu i uznał go za święty.
+Dlatego [pobłogosławił](/eulogia.md) Pan dzień szabatu i uznał go za święty.
 Czcij ojca twego i matkę twoją, abyś długo żył na ziemi, którą Pan, Bóg twój, da tobie.
 Nie będziesz zabijał.
 Nie będziesz cudzołożył.
@@ -363,10 +362,10 @@ Rzekł nadto Pan do Mojżesza:
 Nie będziecie sporządzać obok Mnie bożków ze srebra ani bożków ze złota nie będziecie sobie czynić.
 Uczynisz Mi ołtarz z ziemi i będziesz składał na nim twoje całopalenia,
 twoje ofiary biesiadne z twojej trzody i z bydła na każdym miejscu,
-gdzie każę ci wspominać moje imię. Przyjdę do ciebie i będę ci błogosławił. (...)
+gdzie każę ci wspominać moje imię. Przyjdę do ciebie i będę ci [błogosławił](/eulogia.md). (...)
 
 [Mateusz 26,26-28](https://biblia.deon.pl/rozdzial.php?id=362), [Marek 14,22-25](https://biblia.deon.pl/rozdzial.php?id=313&werset=22#W22), [Łukasz 22,19](https://biblia.deon.pl/rozdzial.php?id=337&werset=19#W19), [1 Koryntian 11,23-26](https://biblia.deon.pl/rozdzial.php?id=296&werset=23#W23)  
-A gdy oni jedli, Jezus wziął chleb i odmówiwszy błogosławieństwo, połamał i dał uczniom, mówiąc:  
+A gdy oni jedli, Jezus wziął chleb i odmówiwszy [błogosławieństwo](/eulogia.md), połamał i dał uczniom, mówiąc:  
 «Bierzcie i jedzcie, to jest Ciało moje».  
 Następnie wziął kielich i odmówiwszy [dziękczynienie](/eucharisteo.md), dał im, mówiąc:  
 «Pijcie z niego wszyscy, bo to jest moja Krew [Przymierza](/berit.md),
@@ -374,7 +373,7 @@ która za wielu będzie wylana na odpuszczenie grzechów.
 
 [2 Koryntian 3,6](https://biblia.deon.pl/rozdzial.php?id=997&werset=6#W6)  
 On też sprawił, żeśmy mogli stać się sługami [Nowego Przymierza](/berit.md),
-przymierza nie litery, lecz Ducha;
+[przymierza](/eulogia.md) nie litery, lecz Ducha;
 litera bowiem zabija, Duch zaś ożywia
 
 # Bóg posyła

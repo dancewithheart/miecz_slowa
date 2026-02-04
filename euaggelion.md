@@ -1,7 +1,5 @@
 ## dobra nowina
 
-Greckie słowo: ευαγγελιον (euangelion) [strong 2098](https://biblia.oblubienica.eu/wystepowanie/strong/id/2098)  
-
 [Jan 3,16](https://biblia.deon.pl/rozdzial.php?id=342)  
 Tak bowiem Bóg umiłował świat, że Syna swego Jednorodzonego dał, aby każdy, kto w Niego wierzy, nie zginął, ale miał [życie](/zoen.md) wieczne. 
 
@@ -134,3 +132,5 @@ Po udręce i sądzie został usunięty;
 a kto się przejmuje Jego losem?  
 Tak! Zgładzono Go z krainy żyjących;  
 za grzechy mego ludu  
+
+Greckie słowo: ευαγγελιον (euangelion) [strong 2098](https://biblia.oblubienica.eu/wystepowanie/strong/id/2098)  

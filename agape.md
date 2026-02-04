@@ -2,8 +2,6 @@
 
 [Wit Chlondowski - Zacznij MEDYTOWAĆ - gniew #4](https://www.youtube.com/watch?v=rX3iuTGMe4s&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=4)  
 
-Greckie słowo: αγαπη (agape) [strong 26](https://biblia.oblubienica.eu/wystepowanie/strong/id/26)  
-
 [Efezjan 4,26-31](https://biblia.deon.pl/rozdzial.php?id=1031)  
 Gniewajcie się, a nie grzeszcie: niech nad waszym gniewem nie zachodzi słońce! (...)  
 Niech zniknie spośród was wszelka gorycz, uniesienie, gniew, wrzaskliwość, znieważenie - wraz z wszelką złością.  
@@ -111,3 +109,5 @@ bo jak śmierć potężna jest miłość, a zazdrość jej nieprzejednana jak Sz
 żar jej to żar ognia, płomień Pański.
 Wody wielkie nie zdołają ugasić miłości, nie zatopią jej rzeki.
 Jeśliby kto oddał za miłość całe bogactwo swego domu, pogardzą nim tylko.
+
+Greckie słowo: αγαπη (agape) [strong 26](https://biblia.oblubienica.eu/wystepowanie/strong/id/26)  

@@ -1,9 +1,5 @@
 # Boża moc
 
-Hebrajski: // geburah [1369 biblehub](https://biblehub.com/hebrew/1369.htm) [61 wystąpień](https://biblehub.com/hebrew/strongs_1369.htm)  
-Hebrajski: // koach [3581 biblehub](https://biblehub.com/hebrew/3581.htm) [125 wystąpień](https://biblehub.com/hebrew/strongs_3581.htm)  
-Grecki: /δύναμις/ dunamis [1411 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1411) [120 wystąpień](https://biblehub.com/greek/strongs_1411.htm)  
-
 [Rzymian 1,16-17](https://biblia.deon.pl/rozdzial.php?id=270)  
 Bo ja nie wstydzę się Ewangelii, jest bowiem ona mocą Bożą ku [zbawieniu](/sozo.md)
 dla każdego [wierzącego](/pistis.md),
@@ -54,3 +50,7 @@ Bóg twój, wszędzie, gdziekolwiek pójdziesz»
 [Powtórzonego Prawa 31,6](https://biblia.deon.pl/rozdzial.php?id=232&werset=6#W6)  
 Bądź mężny i [mocny](/dynamis.md), [nie lękaj się](/elpis.md), nie bój się ich,
 gdyż Pan, Bóg twój, idzie z tobą, nie opuści cię i nie porzuci»
+
+Hebrajski: // geburah [1369 biblehub](https://biblehub.com/hebrew/1369.htm) [61 wystąpień](https://biblehub.com/hebrew/strongs_1369.htm)  
+Hebrajski: // koach [3581 biblehub](https://biblehub.com/hebrew/3581.htm) [125 wystąpień](https://biblehub.com/hebrew/strongs_3581.htm)  
+Grecki: /δύναμις/ dunamis [1411 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1411) [120 wystąpień](https://biblehub.com/greek/strongs_1411.htm)  

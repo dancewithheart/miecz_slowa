@@ -1,12 +1,5 @@
 ## zbawienie
 
-Hebrajski:
-// foo [42 biblehub](https://biblehub.com/hebrew/42.htm) [1 wystąpień](https://biblehub.com/hebrew/strongs_42.htm)
-// foo [42 biblehub](https://biblehub.com/hebrew/42.htm) [1 wystąpień](https://biblehub.com/hebrew/strongs_42.htm)  
-Grecki:
-// foo [10 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/10) [243 wystąpień](https://biblehub.com/greek/strongs_10.htm)  
-// foo [10 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/10) [243 wystąpień](https://biblehub.com/greek/strongs_10.htm)
-
 [Efezjan 2,8-10](https://biblia.deon.pl/rozdzial.php?id=1029)  
 [Łaską](/charis.md) bowiem jesteście **zbawieni**
 przez [wiarę](/pistis.md).
@@ -69,3 +62,9 @@ a kto się przejmuje Jego losem?
 Tak! Zgładzono Go z krainy żyjących;  
 za grzechy mego ludu 
 
+Hebrajski:  
+// foo [42 biblehub](https://biblehub.com/hebrew/42.htm) [1 wystąpień](https://biblehub.com/hebrew/strongs_42.htm)  
+// foo [42 biblehub](https://biblehub.com/hebrew/42.htm) [1 wystąpień](https://biblehub.com/hebrew/strongs_42.htm)  
+Grecki:  
+// foo [10 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/10) [243 wystąpień](https://biblehub.com/greek/strongs_10.htm)  
+// foo [10 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/10) [243 wystąpień](https://biblehub.com/greek/strongs_10.htm)

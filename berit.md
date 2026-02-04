@@ -476,7 +476,7 @@ poznają Mnie19 - wyrocznia Pana,
 ponieważ odpuszczę im występki,  
 a o grzechach ich nie będę już wspominał».  
 
-[Ezechiasz 36,26-28](https://biblia.deon.pl/rozdzial.php?id=740)  
+[Ezechiel 36,26-28](https://biblia.deon.pl/rozdzial.php?id=740)  
 I dam wam serce nowe i ducha nowego tchnę do waszego wnętrza,  
 odbiorę wam serce kamienne, a dam wam serce z ciała.  
 Ducha mojego chcę tchnąć w was i sprawić,  

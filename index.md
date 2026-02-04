@@ -286,6 +286,97 @@ nie trwóż się, bom Ja twoim Bogiem.
 Umacniam cię, jeszcze i wspomagam,  
 podtrzymuję cię moją prawicą [sprawiedliwą](/dikaiosyne.md).
 
+# przymierze
+
+[Rodzaju 17,1-16](https://biblia.deon.pl/rozdzial.php?id=17) **Abraham przymierze**  
+A gdy Abram miał dziewięćdziesiąt dziewięć lat, ukazał mu się Pan i rzekł do niego:  
+«Jam jest Bóg Wszechmogący. Służ Mi i bądź nieskazitelny,
+chcę bowiem zawrzeć moje przymierze pomiędzy Mną a tobą i dać ci niezmiernie liczne potomstwo».  
+Abram padł na oblicze, a Bóg tak do niego mówił:  
+«Oto moje przymierze z tobą: staniesz się ojcem mnóstwa narodów.
+Nie będziesz więc odtąd nazywał się Abram, lecz imię twoje będzie Abraham,
+bo uczynię ciebie ojcem mnóstwa narodów.
+Sprawię, że będziesz niezmiernie płodny, tak że staniesz się ojcem narodów i pochodzić będą od ciebie królowie.
+Przymierze moje, które zawieram pomiędzy Mną a tobą oraz twoim potomstwem,
+będzie trwało z pokolenia w pokolenie jako przymierze wieczne,
+abym był Bogiem twoim, a potem twego potomstwa.
+I oddaję tobie i twym przyszłym potomkom kraj, w którym przebywasz,
+cały kraj Kanaan, jako własność na wieki, i będę ich Bogiem».  
+Potem Bóg rzekł do Abrahama:  
+«Ty zaś, a po tobie twoje potomstwo przez wszystkie pokolenia, zachowujcie przymierze ze Mną.
+Przymierze, które będziecie zachowywali między Mną a wami, czyli twoim przyszłym potomstwem, polega na tym:
+wszyscy wasi mężczyźni mają być obrzezani;
+będziecie obrzezywali ciało napletka na znak przymierza waszego ze Mną.
+Z pokolenia w pokolenie każde wasze dziecko płci męskiej, gdy będzie miało osiem dni,
+ma być obrzezane - sługa urodzony w waszym domu lub nabyty za pieniądze - każdy obcy,
+który nie jest potomkiem twoim - ma być obrzezany;
+obrzezany ma być sługa urodzony w domu twoim lub nabyty za pieniądze.
+Przymierze moje, przymierze obrzezania, będzie przymierzem na zawsze.
+Nieobrzezany, czyli mężczyzna, któremu nie obrzezano ciała jego napletka,
+taki człowiek niechaj będzie usunięty ze społeczności twojej;
+zerwał on bowiem przymierze ze Mną».
+
+[Wyjścia 19,3-25](https://biblia.deon.pl/rozdzial.php?id=69) - [Wyjścia 20,1-24](https://biblia.deon.pl/rozdzial.php?id=70) **Mojżesz przymierze**  
+Mojżesz wstąpił wtedy do Boga, a Pan zawołał na niego z góry i powiedział:  
+«Tak powiesz domowi Jakuba i to oznajmisz Izraelitom:  
+Wyście widzieli, co uczyniłem Egiptowi, jak niosłem was na skrzydłach orlich i przywiodłem was do Mnie.
+Teraz jeśli pilnie słuchać będziecie głosu mego i strzec mojego [przymierza](/berit.md),
+będziecie szczególną moją własnością pośród wszystkich narodów, gdyż do Mnie należy cała ziemia.
+Lecz wy będziecie Mi królestwem kapłanów i ludem świętym. Takie to słowa powiedz Izraelitom». (...)
+Wtedy cały lud jednogłośnie powiedział:  
+«Uczynimy wszystko, co Pan nakazał». (...)
+Góra zaś Synaj była cała spowita dymem, gdyż Pan zstąpił na nią w ogniu i uniósł się dym z niej jakby z pieca,
+i cała góra bardzo się trzęsła (...)
+Potem Pan powiedział do niego:  
+«Idź, zstąp na dół, a potem przyjdź ty i Aaron z tobą. (...)».    
+Wtedy mówił Bóg wszystkie te słowa:  
+«Ja jestem Pan, twój Bóg, który cię wywiódł z ziemi egipskiej, z domu niewoli.  
+Nie będziesz miał cudzych bogów obok Mnie!
+Nie będziesz czynił żadnej rzeźby ani żadnego obrazu tego, co jest na niebie wysoko,
+ani tego, co jest na ziemi nisko, ani tego, co jest w wodach pod ziemią!
+Nie będziesz oddawał im pokłonu i nie będziesz im służył,
+ponieważ Ja Pan, twój Bóg, jestem Bogiem zazdrosnym,
+który karze występek ojców na synach do trzeciego i czwartego pokolenia względem tych,
+którzy Mnie nienawidzą.
+Okazuję zaś łaskę aż do tysiącznego pokolenia tym, którzy Mnie miłują i przestrzegają moich przykazań.
+Nie będziesz wzywał imienia Pana, Boga twego, do czczych rzeczy,
+gdyż Pan nie pozostawi bezkarnie tego, który wzywa Jego imienia do czczych rzeczy.
+Pamiętaj o dniu szabatu, aby go uświęcić.
+Sześć dni będziesz pracować i wykonywać wszystkie twe zajęcia.
+Dzień zaś siódmy jest szabatem ku czci Pana, Boga twego.
+Nie możesz przeto w dniu tym wykonywać żadnej pracy (...).  
+W sześciu dniach bowiem uczynił Pan niebo, ziemię, morze oraz wszystko, co jest w nich,
+w siódmym zaś dniu odpoczął.
+Dlatego pobłogosławił Pan dzień szabatu i uznał go za święty.
+Czcij ojca twego i matkę twoją, abyś długo żył na ziemi, którą Pan, Bóg twój, da tobie.
+Nie będziesz zabijał.
+Nie będziesz cudzołożył.
+Nie będziesz kradł.
+Nie będziesz mówił przeciw bliźniemu twemu kłamstwa jako świadek.
+Nie będziesz pożądał domu bliźniego twego.
+Nie będziesz pożądał żony bliźniego twego, ani jego niewolnika, ani jego niewolnicy,
+ani jego wołu, ani jego osła, ani żadnej rzeczy, która należy do bliźniego twego».
+Wtedy cały lud, słysząc grzmoty i błyskawice oraz głos trąby i widząc górę dymiącą,
+przeląkł się i drżał, i stał z daleka. (...)
+Rzekł nadto Pan do Mojżesza:  
+«Tak powiesz Izraelitom: Wy sami widzieliście, że z nieba do was przemawiałem.
+Nie będziecie sporządzać obok Mnie bożków ze srebra ani bożków ze złota nie będziecie sobie czynić.
+Uczynisz Mi ołtarz z ziemi i będziesz składał na nim twoje całopalenia,
+twoje ofiary biesiadne z twojej trzody i z bydła na każdym miejscu,
+gdzie każę ci wspominać moje imię. Przyjdę do ciebie i będę ci błogosławił. (...)
+
+[Mateusz 26,26-28](https://biblia.deon.pl/rozdzial.php?id=362), [Marek 14,22-25](https://biblia.deon.pl/rozdzial.php?id=313&werset=22#W22), [Łukasz 22,19](https://biblia.deon.pl/rozdzial.php?id=337&werset=19#W19), [1 Koryntian 11,23-26](https://biblia.deon.pl/rozdzial.php?id=296&werset=23#W23)  
+A gdy oni jedli, Jezus wziął chleb i odmówiwszy błogosławieństwo, połamał i dał uczniom, mówiąc:  
+«Bierzcie i jedzcie, to jest Ciało moje».  
+Następnie wziął kielich i odmówiwszy [dziękczynienie](/eucharisteo.md), dał im, mówiąc:  
+«Pijcie z niego wszyscy, bo to jest moja Krew [Przymierza](/berit.md),
+która za wielu będzie wylana na odpuszczenie grzechów.
+
+[2 Koryntian 3,6](https://biblia.deon.pl/rozdzial.php?id=997&werset=6#W6)  
+On też sprawił, żeśmy mogli stać się sługami [Nowego Przymierza](/berit.md),
+przymierza nie litery, lecz Ducha;
+litera bowiem zabija, Duch zaś ożywia
+
 # Bóg posyła
 
 [Jan 20,21](https://biblia.deon.pl/rozdzial.php?id=359)  

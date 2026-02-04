@@ -143,7 +143,7 @@ i przerąbane części ułożył jedną naprzeciw drugiej;
 ptaków nie porozcinał. 
 Kiedy zaś do tego mięsa zaczęło zlatywać się ptactwo drapieżne,
 Abram je odpędził. A gdy słońce chyliło się ku zachodowi,
-Abram zapadł w głęboki sen i opanowało go uczucie lęku,
+**Abram zapadł w głęboki** sen i opanowało go uczucie lęku,
 jak gdyby ogarnęła go wielka ciemność.
 I wtedy to Pan rzekł do Abrama:  
 «Wiedz o tym dobrze, iż twoi potomkowie będą przebywać jako przybysze w kraju,
@@ -156,10 +156,10 @@ Ale ty odejdziesz do twych przodków w pokoju,
 w późnej starości zejdziesz do grobu.
 Twoi potomkowie powrócą tu dopiero w czwartym pokoleniu,
 gdy już dopełni się miara niegodziwości Amorytów».  
-A kiedy słońce zaszło i nastał mrok nieprzenikniony, 
+**A kiedy słońce zaszło i nastał mrok nieprzenikniony, 
 ukazał się dym jakby wydobywający się z pieca i ogień niby gorejąca pochodnia
-i przesunęły się między tymi połowami zwierząt.
-Wtedy to właśnie Pan zawarł przymierze z Abramem, mówiąc:  
+i przesunęły się między tymi połowami zwierząt.**
+Wtedy to właśnie Pan zawarł [przymierze](/berit.md) z Abramem, mówiąc:  
 «Potomstwu twemu daję ten kraj, od Rzeki Egipskiej aż do rzeki wielkiej,
 rzeki Eufrat (...)».
 
@@ -236,13 +236,13 @@ i jak ziarnka piasku na wybrzeżu morza; potomkowie twoi zdobędą warownie swyc
 Wszystkie ludy ziemi będą sobie życzyć szczęścia [takiego, jakie jest udziałem] twego potomstwa,
 dlatego że usłuchałeś mego rozkazu».
 
-## Mojrzesz
+## Mojżesz
 
-[Wyjścia 19,3-](https://biblia.deon.pl/rozdzial.php?id=69) - [Wyjścia 20,1-24](https://biblia.deon.pl/rozdzial.php?id=70)  
+[Wyjścia 19,3-25](https://biblia.deon.pl/rozdzial.php?id=69) - [Wyjścia 20,1-24](https://biblia.deon.pl/rozdzial.php?id=70)  
 Mojżesz wstąpił wtedy do Boga, a Pan zawołał na niego z góry i powiedział:  
 «Tak powiesz domowi Jakuba i to oznajmisz Izraelitom:  
 Wyście widzieli, co uczyniłem Egiptowi, jak niosłem was na skrzydłach orlich i przywiodłem was do Mnie.
-Teraz jeśli pilnie słuchać będziecie głosu mego i strzec mojego przymierza,
+Teraz jeśli pilnie słuchać będziecie głosu mego i strzec mojego [przymierza](/berit.md),
 będziecie szczególną moją własnością pośród wszystkich narodów, gdyż do Mnie należy cała ziemia.
 Lecz wy będziecie Mi królestwem kapłanów i ludem świętym. Takie to słowa powiedz Izraelitom».  
 Mojżesz powrócił i zwołał starszych ludu, i przedstawił im wszystko, co mu Pan nakazał.
@@ -284,7 +284,7 @@ Wtedy rzekł Mojżesz do Pana:
 "Oznacz granicę około góry i ogłoś ją jako świętą"».  
 Potem Pan powiedział do niego:  
 «Idź, zstąp na dół, a potem przyjdź ty i Aaron z tobą.
-Kapłani i lud nie mogą przejść granicy, aby wstąpić do Pana, boby ich ukarał».    
+Kapłani i lud nie mogą przejść granicy, aby wstąpić do Pana, boby ich ukarał».   
 Mojżesz zszedł na dół do ludu i to mu oznajmił.
 
 Wtedy mówił Bóg wszystkie te słowa:  
@@ -334,7 +334,7 @@ Uczynisz Mi ołtarz z ziemi i będziesz składał na nim twoje całopalenia,
 twoje ofiary biesiadne z twojej trzody i z bydła na każdym miejscu,
 gdzie każę ci wspominać moje imię. Przyjdę do ciebie i będę ci błogosławił. (...)
 
-[Wyjścia 21-23](https://biblia.deon.pl/rozdzial.php?id=71) **prawo przekazane Mojrzeszowi**
+[Wyjścia 21-23](https://biblia.deon.pl/rozdzial.php?id=71) **prawo przekazane Mojżesz**
 
 [Wyjścia 24,1-10](https://biblia.deon.pl/rozdzial.php?id=74)  
 I rzekł [Pan] do Mojżesza:  
@@ -352,7 +352,7 @@ a drugą połową krwi skropił ołtarz.
 Wtedy wziął Księgę Przymierza i czytał ją głośno ludowi. I oświadczyli:  
 «Wszystko, co powiedział Pan, uczynimy i będziemy posłuszni».  
 Mojżesz wziął krew i pokropił nią lud, mówiąc:  
-«Oto krew przymierza, które Pan zawarł z wami na podstawie wszystkich tych słów».  
+«Oto krew [przymierza](/berit.md), które Pan zawarł z wami na podstawie wszystkich tych słów».  
 Wstąpił Mojżesz wraz z Aaronem, Nadabem, Abihu i siedemdziesięciu starszymi Izraela.
 Ujrzeli Boga Izraela, a pod Jego stopami jakby jakieś dzieło z szafirowych kamieni,
 świecących jak samo niebo.
@@ -427,10 +427,10 @@ Jozue odpowiedział ludowi:
 I odpowiedzieli:  
 «Jesteśmy świadkami».  
 «Usuńcie więc bogów obcych spośród was i zwróćcie serca wasze ku Panu, Bogu Izraela».  
-I odrzekł lud Jozuemu:   
+I odrzekł lud Jozuemu:  
 «Panu, Bogu naszemu, chcemy służyć i głosu Jego chcemy słuchać».
 
-Zawarł więc Jozue w tym dniu przymierze z ludem i nadał mu ustawę i nakaz w Sychem.
+Zawarł więc Jozue w tym dniu [przymierze](/berit.md) z ludem i nadał mu ustawę i nakaz w Sychem.
 Jozue zapisał te słowa w księdze Prawa Bożego.
 Wziął następnie wielki kamień i wzniósł go tam pod terebintem, który jest w miejscu poświęconym Panu.
 Następnie Jozue rzekł do zgromadzonego ludu:  
@@ -447,15 +447,17 @@ które Pan mówił do nas. Będzie on świadkiem przeciw wam, abyście się nie 
 Wtedy król polecił przez posłów, by zebrała się koło niego cała starszyzna Judy i Jerozolimy.
 I wszedł król do świątyni Pańskiej, a wraz z nim wszyscy ludzie z Judy i wszyscy mieszkańcy Jerozolimy,
 kapłani i prorocy oraz cały lud, od najmniejszych aż do największych.
-Odczytał głośno1 całą treść księgi przymierza, znalezionej w świątyni Pańskiej.
-Następnie król stanął przy kolumnie i zawarł przymierze przed obliczem Pańskim, że pójdą za Panem, że będą przestrzegali Jego poleceń, przykazań i praw całym sercem i całą duszą, że w czyn zamienią słowa tego przymierza, spisane w tejże księdze. I cały lud przystąpił do przymierza.
+Odczytał głośno całą treść księgi przymierza, znalezionej w świątyni Pańskiej.
+Następnie król stanął przy kolumnie i zawarł [przymierze](/berit.md) przed obliczem Pańskim, że pójdą za Panem,
+że będą przestrzegali Jego poleceń, przykazań i praw całym sercem i całą duszą,
+że w czyn zamienią słowa tego przymierza, spisane w tejże księdze. I cały lud przystąpił do przymierza.
 
 ## Jezus Chrystus
 
 [Jeremiasz 31,31-34](https://biblia.deon.pl/rozdzial.php?id=672&werset=31#W31)  
 Oto nadchodzą dni - wyrocznia Pana -  
 kiedy zawrę z domem Izraela <i z domem judzkim>  
-nowe przymierze.  
+[nowe przymierze](/berit.md).  
 Nie jak przymierze, które zawarłem z ich przodkami,  
 kiedy ująłem ich za rękę,  
 by wyprowadzić z ziemi egipskiej.  
@@ -492,7 +494,7 @@ Następnie wziął kielich i odmówiwszy [dziękczynienie](/eucharisteo.md), da�
 która za wielu będzie wylana na odpuszczenie grzechów.
 
 [Hebrajczyków 8,6-13](https://biblia.deon.pl/rozdzial.php?id=372)  
-Teraz zaś otrzymał w udziale o tyle wznioślejszą służbę, o ile stał się pośrednikiem lepszego przymierza,
+Teraz zaś otrzymał w udziale o tyle wznioślejszą służbę, o ile stał się pośrednikiem [lepszego przymierza](/berit.md),
 które oparte zostało na lepszych obietnicach.
 Gdyby bowiem owo pierwsze było bez nagany, to nie szukano by miejsca na drugie [przymierze].  
 Albowiem ganiąc ich, zapowiada:  
@@ -522,7 +524,7 @@ Ponieważ zaś mówi o nowym, pierwsze uznał za przestarzałe;
 a to, co się przedawnia i starzeje, bliskie jest zniszczenia.   
 
 [2 Koryntian 3,6](https://biblia.deon.pl/rozdzial.php?id=997&werset=6#W6)  
-On też sprawił, żeśmy mogli stać się sługami Nowego Przymierza,
+On też sprawił, żeśmy mogli stać się sługami [Nowego Przymierza](/berit.md),
 przymierza nie litery, lecz Ducha;
 litera bowiem zabija, Duch zaś ożywia
 
@@ -536,3 +538,69 @@ by owoc przynosić śmierci.
 Teraz zaś straciło moc nad nami Prawo, gdy umarliśmy temu,
 co trzymało nas w jarzmie, tak,
 że możemy pełnić służbę w nowym duchu, a nie według przestarzałej litery. 
+
+## baranek paschalny
+
+[Wyjścia 12,1-14](https://biblia.deon.pl/rozdzial.php?id=62)  
+Pan powiedział do Mojżesza i Aarona w ziemi egipskiej: 
+«Miesiąc ten będzie dla was początkiem miesięcy, będzie pierwszym miesiącem roku!
+Powiedzcie całemu zgromadzeniu Izraela tak: Dziesiątego dnia tego miesiąca
+niech się każdy postara o baranka dla rodziny, o baranka dla domu.
+Jeśliby zaś rodzina była za mała do spożycia baranka,
+to niech się postara o niego razem ze swym sąsiadem,
+który mieszka najbliżej jego domu, aby była odpowiednia liczba osób.
+Liczyć je zaś będziecie dla spożycia baranka według tego, co każdy może spożyć.
+Baranek będzie bez skazy, samiec, jednoroczny; wziąć możecie jagnię albo koźlę.
+Będziecie go strzec aż do czternastego dnia tego miesiąca,
+a wtedy zabije go całe zgromadzenie Izraela o zmierzchu.
+I wezmą krew baranka, i pokropią nią odrzwia i progi domu,
+w którym będą go spożywać.
+I tej samej nocy spożyją mięso pieczone w ogniu, spożyją je z chlebem niekwaszonym
+i gorzkimi ziołami. Nie będziecie spożywać z niego nic surowego ani ugotowanego
+w wodzie, lecz upieczone na ogniu, z głową, nogami i wnętrznościami.
+Nie może nic pozostać z niego na dzień następny.
+Cokolwiek zostanie z niego na następny dzień, w ogniu spalicie.
+Tak zaś spożywać go będziecie: Biodra wasze będą przepasane,
+sandały na waszych nogach i laska w waszym ręku.
+Spożywać będziecie pośpiesznie, gdyż jest to Pascha na cześć Pana.
+Tej nocy przejdę przez Egipt,
+zabiję wszystko pierworodne w ziemi egipskiej od człowieka aż do bydła
+i odbędę sąd nad wszystkimi bogami Egiptu - Ja, Pan.
+Krew będzie wam służyła do oznaczenia domów, w których będziecie przebywać.
+Gdy ujrzę krew, przejdę obok i nie będzie pośród was plagi niszczycielskiej,
+gdy będę karał ziemię egipską.
+Dzień ten będzie dla was dniem pamiętnym
+i obchodzić go będziecie jako święto dla uczczenia Pana.
+Po wszystkie pokolenia - na zawsze w tym dniu świętować będziecie.
+
+[1 Koryntian 5,7](https://biblia.deon.pl/rozdzial.php?id=290)
+Chrystus bowiem został złożony w ofierze jako nasza Pascha.
+
+[Jan 1,29](https://biblia.deon.pl/rozdzial.php?id=340)  
+Nazajutrz zobaczył Jezusa, nadchodzącego ku niemu, i rzekł:  
+«Oto Baranek Boży16, który gładzi grzech świata.
+
+[1 Piotra 1,18-19](https://biblia.deon.pl/rozdzial.php?id=1049)  
+Wiecie bowiem, że z waszego, odziedziczonego po przodkach,
+złego postępowania zostali wykupieni nie czymś przemijającym,
+srebrem lub złotem,
+ale drogocenną krwią Chrystusa, jako baranka niepokalanego i bez zmazy.
+
+[Apokalipsa 5,6-10](https://biblia.deon.pl/rozdzial.php?id=1093)  
+I ujrzałem między tronem z czworgiem Zwierząt  
+a kręgiem Starców  
+stojącego Baranka jakby zabitego,  
+a miał siedem rogów i siedmioro oczu,  
+którymi jest siedem Duchów Boga wysłanych na całą ziemię.  
+On poszedł,  
+i z prawicy Zasiadającego na tronie wziął księgę.  
+A kiedy wziął księgę,  
+czworo Zwierząt i dwudziestu czterech Starców upadło przed Barankiem,  
+każdy mając harfę i złote czasze pełne kadzideł,  
+którymi są modlitwy świętych.  
+I taką nową pieśń śpiewają:  
+«Godzien jesteś wziąć księgę i jej pieczęcie otworzyć,  
+bo zostałeś zabity  
+i nabyłeś Bogu krwią twoją [ludzi] z każdego pokolenia, języka, ludu i narodu,  
+i uczyniłeś ich Bogu naszemu królestwem i kapłanami,  
+a będą królować na ziemi».  

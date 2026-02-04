@@ -11,11 +11,11 @@ Grecki:
 Jak jest odległy wschód od zachodu,  
 tak daleko odsuwa od nas nasze występki. 
 
-[Mateusz 26,26-28](https://biblia.deon.pl/rozdzial.php?id=362), [Marek 14,22-25](https://biblia.deon.pl/rozdzial.php?id=313&werset=22#W22), [Łk 22,19](https://biblia.deon.pl/rozdzial.php?id=337&werset=19#W19), [1 Koryntian 11,23-26](https://biblia.deon.pl/rozdzial.php?id=296&werset=23#W23)  
+[Mateusz 26,26-28](https://biblia.deon.pl/rozdzial.php?id=362), [Marek 14,22-25](https://biblia.deon.pl/rozdzial.php?id=313&werset=22#W22), [Łukasz 22,19](https://biblia.deon.pl/rozdzial.php?id=337&werset=19#W19), [1 Koryntian 11,23-26](https://biblia.deon.pl/rozdzial.php?id=296&werset=23#W23)  
 A gdy oni jedli, Jezus wziął chleb i odmówiwszy błogosławieństwo, połamał i dał uczniom, mówiąc:  
 «Bierzcie i jedzcie, to jest Ciało moje».  
 Następnie wziął kielich i odmówiwszy [dziękczynienie](/eucharisteo.md), dał im, mówiąc:  
-«Pijcie z niego wszyscy, bo to jest moja Krew Przymierza,
+«Pijcie z niego wszyscy, bo to jest moja Krew [Przymierza](/berit.md),
 która za wielu będzie wylana na odpuszczenie grzechów.
 
 [Efezjan 1,7](https://biblia.deon.pl/rozdzial.php?id=1028)

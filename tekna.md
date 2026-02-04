@@ -1,4 +1,4 @@
-# Bóg wysłuchuje modlitwy o dzieci
+# Modlitwy rodziców o dzieci
 
 [Hebrajszyków 11,11](https://biblia.deon.pl/rozdzial.php?id=375)  
 Przez wiarę także i sama Sara, mimo podeszłego wieku, otrzymała moc poczęcia.
@@ -67,7 +67,6 @@ Naraz ukazał mu się anioł Pański, stojący po prawej stronie ołtarza kadzen
 Przeraził się na ten widok Zachariasz i strach padł na niego.
 Lecz anioł rzekł do niego:  
 «Nie bój się Zachariaszu! Twoja prośba została wysłuchana: żona twoja Elżbieta urodzi ci syna, któremu nadasz imię Jan.
-
 
 [Psalm 113,1-9](https://biblia.deon.pl/rozdzial.php?id=946)  
 Chwalcie, słudzy Pańscy,  

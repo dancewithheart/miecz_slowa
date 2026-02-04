@@ -14,7 +14,7 @@ Z nastaniem dnia wyszedł i udał się na miejsce pustynne.
 A tłumy szukały Go i przyszły aż do Niego; chciały Go zatrzymać, żeby nie odchodził od nich.  
 Lecz On rzekł do nich: «Także innym miastom muszę głosić [Dobrą Nowinę](/euaggelion.md) o królestwie Bożym, bo na to zostałem posłany».  
 
-[Łk 17,20–21](https://biblia.deon.pl/rozdzial.php?id=332)  
+[Łukasz 17,20–21](https://biblia.deon.pl/rozdzial.php?id=332)  
 Zapytany przez faryzeuszów, kiedy przyjdzie królestwo Boże, odpowiedział im:  
 «Królestwo Boże nie przyjdzie dostrzegalnie; i nie powiedzą: "Oto tu jest" albo: "Tam".  
 Oto bowiem królestwo Boże pośród was jest»  

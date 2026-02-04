@@ -138,12 +138,6 @@ W Panu pokładam [nadzieję](/elpis.md), nadzieję żywi moja dusza: oczekuję n
 Przybliżmy się więc z ufnością do tronu [łaski](/charis.md),
 abyśmy otrzymali [miłosierdzie](/eleos.md) i pomoc w stosownej chwili.
 
-[Efezjan 2,8-10](https://biblia.deon.pl/rozdzial.php?id=1029)  
-[Łaską](/charis.md) bowiem jesteście [zbawieni](/sozo.md) przez [wiarę](/pistis.md).
-A to pochodzi nie od was, lecz jest darem Boga: nie z uczynków, aby się nikt nie chlubił.
-Jesteśmy bowiem Jego dziełem, stworzeni w Chrystusie Jezusie dla dobrych czynów,
-które Bóg z góry przygotował, abyśmy je pełnili.
-
 [Rzymian 3,21-24](https://biblia.deon.pl/rozdzial.php?id=272)  
 Ale teraz jawną się stała [sprawiedliwość](/dikaiosyne.md) Boża niezależna od Prawa, poświadczona przez Prawo i Proroków.
 Jest to [sprawiedliwość](/dikaiosyne.md) Boża przez [wiarę](/pistis.md) w Jezusa Chrystusa dla wszystkich, którzy wierzą.
@@ -245,6 +239,20 @@ za sprawą Ducha Pańskiego, coraz bardziej jaśniejąc, upodabniamy się do Jeg
 Jezus rzekł do niej: «Czyż nie powiedziałem ci, że jeśli uwierzysz, ujrzysz [chwałę](/doxa.md) Bożą?»
 
 # błogosławieństwo
+
+[Rodzaj 1,28](https://biblia.deon.pl/rozdzial.php?id=1#W28)  
+«Bądźcie płodni i rozmnażajcie się,
+abyście zaludnili ziemię i uczynili ją sobie poddaną;
+abyście panowali nad rybami morskimi, nad ptactwem powietrznym
+i nad wszystkimi zwierzętami pełzającymi po ziemi»
+
+[Ezechiel 36,26-28](https://biblia.deon.pl/rozdzial.php?id=740)  
+I dam wam serce nowe i ducha nowego tchnę do waszego wnętrza,  
+odbiorę wam serce kamienne, a dam wam serce z ciała.  
+Ducha mojego chcę tchnąć w was i sprawić,  
+byście [żyli](/zoen.md) według mych nakazów i przestrzegali przykazań,
+i według nich postępowali. (...)  
+i będziecie moim ludem, a Ja będę waszym Bogiem.
 
 [Liczb 6,24-26](https://biblia.deon.pl/rozdzial.php?id=126)  
 Niech cię Pan [błogosławi](/eulogia.md) i strzeże.  

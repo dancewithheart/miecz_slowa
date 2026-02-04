@@ -101,7 +101,7 @@ My zaś z pomocą Ducha, na zasadzie [wiary](/pistis.md) wyczekujemy spodziewane
 Albowiem w Chrystusie Jezusie ani obrzezanie, ani jego brak nie mają żadnego znaczenia, tylko wiara, która działa przez [miłość](/agape.md).
 
 [Izajasz 54,10](https://biblia.deon.pl/rozdzial.php?id=526)  
-Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie i nie zachwieje się moje przymierze pokoju, mówi Pan, który ma litość nad tobą.  
+Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie i nie zachwieje się moje [przymierze](/berit.md) pokoju, mówi Pan, który ma litość nad tobą.  
 
 ![Bo góry mogą ustąpić i pagórki się zachwiać, ale miłość moja nie odstąpi od ciebie](/assets/img/Iz54_gory_ustapic_milosc.jpg)
 

@@ -39,7 +39,7 @@ W Sorea, w pokoleniu Dana, żył pewien mąż imieniem Manoach.
 Anioł Pana ukazał się owej kobiecie mówiąc jej:  
 «Otoś teraz niepłodna i nie rodziłaś, ale poczniesz i porodzisz syna (...)»  
 Porodziła więc owa kobieta syna i nazwała go imieniem Samson.
-Chłopiec rósł, a Pan mu błogosławił.
+Chłopiec rósł, a Pan mu [błogosławił](/eulogia.md).
 
 [2 Królewska 4,14-17](https://biblia.deon.pl/rozdzial.php?id=1258)  
 «Co więc można uczynić dla niej?»  
@@ -71,7 +71,7 @@ Lecz anioł rzekł do niego:
 [Psalm 113,1-9](https://biblia.deon.pl/rozdzial.php?id=946)  
 Chwalcie, słudzy Pańscy,  
 chwalcie imię Pana:  
-Niech imię Pańskie będzie błogosławione  
+Niech imię Pańskie będzie [błogosławione](/eulogia.md)  
 odtąd i aż na wieki!  
 Od wschodu słońca aż po zachód jego  
 niech imię Pańskie będzie pochwalone!  

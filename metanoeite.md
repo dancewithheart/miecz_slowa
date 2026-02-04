@@ -1,7 +1,5 @@
 ## Zmiana myślenia / nawrócenie
 
-Greckie słowo: μετανοειτε (metanoeite) [strong 3340](https://biblia.oblubienica.eu/wystepowanie/strong/id/3340) vs eπιστρέψει (epistrepsei) [strong 1994](https://biblia.oblubienica.eu/wystepowanie/strong/id/1994)  
-
 [Marek 1,15](https://biblia.deon.pl/rozdzial.php?id=267), [Mateusz 3,2](https://biblia.deon.pl/rozdzial.php?id=246), [Mateusz 4,17](https://biblia.deon.pl/rozdzial.php?id=247)   
 Czas się wypełnił i bliskie jest [królestwo Boże](/basileia.md). Nawracajcie się i wierzcie w [Ewangelię](/euaggelion.md)!
 
@@ -28,4 +26,6 @@ Jeśli brat twój zawini, upomnij go; i jeśli żałuje, przebacz mu! I jeśliby
 Tego właśnie Jezusa wskrzesił Bóg, a my wszyscy jesteśmy tego świadkami. Wyniesiony na prawicę Boga, otrzymał od Ojca obietnicę Ducha Świętego i zesłał Go, jak to sami widzicie i słyszycie. (...)
 Niech więc cały dom Izraela wie z niewzruszoną pewnością, że tego Jezusa, którego wyście ukrzyżowali, uczynił Bóg i Panem, i Mesjaszem».
 Gdy to usłyszeli, przejęli się do głębi serca: «Cóż mamy czynić, bracia?» - zapytali Piotra i pozostałych Apostołów. «**Nawróćcie się** - powiedział do nich Piotr - i niech każdy z was ochrzci się w imię Jezusa Chrystusa na odpuszczenie grzechów waszych, a weźmiecie w darze Ducha Świętego. Bo dla was jest obietnica i dla dzieci waszych, i dla wszystkich, którzy są daleko, a których powoła Pan Bóg nasz».
-W wielu też innych słowach dawał świadectwo i napominał: «Ratujcie się spośród tego przewrotnego pokolenia!». Ci więc, którzy przyjęli jego naukę, zostali ochrzczeni. I przyłączyło się owego dnia około trzech tysięcy dusz. 
+W wielu też innych słowach dawał świadectwo i napominał: «Ratujcie się spośród tego przewrotnego pokolenia!». Ci więc, którzy przyjęli jego naukę, zostali ochrzczeni. I przyłączyło się owego dnia około trzech tysięcy dusz.
+
+Greckie słowo: μετανοειτε (metanoeite) [strong 3340](https://biblia.oblubienica.eu/wystepowanie/strong/id/3340) vs eπιστρέψει (epistrepsei) [strong 1994](https://biblia.oblubienica.eu/wystepowanie/strong/id/1994)  

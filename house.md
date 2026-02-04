@@ -3,7 +3,7 @@ Pan będzie strzegł twego wyjścia i przyjścia teraz i po wszystkie czasy.
 
 salon: [Psalm 133,1-3](https://biblia.deon.pl/rozdzial.php?id=966)  
 Oto jak dobrze i jak miło, gdy bracia mieszkają razem;
-(...) bo tam udziela Pan błogosławieństwa, życia na wieki.
+(...) bo tam udziela Pan [błogosławieństwa](/eulogia.md), życia na wieki.
 
 stół: [Dz 8,46](https://biblia.deon.pl/rozdzial.php?id=379)  
 Łamiąc chleb po domach, przyjmowali posiłek z radością i prostotą serca.

@@ -1,8 +1,6 @@
 ## wolność
 ## uzależnienie, zniewolenie błędami, grzechem → wolność, uwolnienie
 
-Greckie słowo: αελευθερος (eleutheros) [strong 1658](https://biblia.oblubienica.eu/wystepowanie/strong/id/1658)  
-
 [Łukasz 4,18-19](https://biblia.deon.pl/rozdzial.php?id=319), [Izajasz 61,1-2](https://biblia.deon.pl/rozdzial.php?id=533&werset=1#W1)   
 Duch Pański spoczywa na Mnie,  
 ponieważ Mnie namaścił i posłał Mnie,  
@@ -89,4 +87,7 @@ Ci bowiem, którzy żyją według ciała, dążą do tego, czego chce ciało; ci
 A kiedy ktoś zwraca się do Pana, zasłona opada. Pan zaś jest Duchem, a gdzie jest Duch Pański - tam wolność.  
 
 [2 Koryntian 5,15](https://biblia.deon.pl/rozdzial.php?id=999)  
-Jeżeli więc ktoś pozostaje w Chrystusie, jest nowym stworzeniem. To, co dawne, minęło, a oto stało się nowe. 
+Jeżeli więc ktoś pozostaje w Chrystusie, jest nowym stworzeniem. To, co dawne, minęło, a oto stało się nowe.
+
+Greckie słowo: αελευθερος (eleutheros) [strong 1658](https://biblia.oblubienica.eu/wystepowanie/strong/id/1658)  
+

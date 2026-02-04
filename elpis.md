@@ -2,12 +2,6 @@
 
 [Wit Chlondowski - Zacznij MEDYTOWAĆ - lęk/strach #3](https://www.youtube.com/watch?v=nP2zMsdJXr0&list=PL6hgBhB7Elk8ELgGZGshNh-N_2wHbaEfV&index=3)
 
-Greckie słowo: ελπις (elpis) [strong 1680](https://biblia.oblubienica.eu/wystepowanie/strong/id/1680)  
-Hebrajski: /תִּקְוָה/ tiqvah [8615 biblehub](https://biblehub.com/hebrew/8615.htm) [34 wystąpień](https://biblehub.com/hebrew/strongs_8615.htm)  
-  yachal // [3176 biblehub](https://biblehub.com/hebrew/3176.htm) [40 wystąpień](https://biblehub.com/hebrew/strongs_3176.htm)
-
-Grecki: /ἐλπίς/ elpis [1680 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1680) [53 wystąpień](https://biblehub.com/greek/strongs_1680.htm)
-
 [Psalm 23,4-5](https://biblia.deon.pl/rozdzial.php?id=856)  
 Chociażbym chodził ciemną doliną,  
 zła się nie ulęknę,  
@@ -108,3 +102,7 @@ Będziesz stąpał po wężach i żmijach,
 a lwa i smoka będziesz mógł podeptać.  
 
 ![aniołom dał rozkaz by cię strzegli na wszystkich drogach](/assets/img/PS_91_anioly_drogi.jpg)
+
+Hebrajski: /תִּקְוָה/ tiqvah [8615 biblehub](https://biblehub.com/hebrew/8615.htm) [34 wystąpień](https://biblehub.com/hebrew/strongs_8615.htm)  
+yachal // [3176 biblehub](https://biblehub.com/hebrew/3176.htm) [40 wystąpień](https://biblehub.com/hebrew/strongs_3176.htm)
+Grecki: /ἐλπίς/ elpis [1680 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1680) [53 wystąpień](https://biblehub.com/greek/strongs_1680.htm)

@@ -1,10 +1,5 @@
 ## sprawiedliwość / usprawiedliwienie
 
-Hebrajski: // tsedeq [6664 biblehub](https://biblehub.com/hebrew/6664.htm) [118 wystąpień](https://biblehub.com/hebrew/strongs_6664.htm)  
-Grecki:  
-/δικαιοσυνη/ dikaiosyne [1343 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1343) [92 wystąpień](https://biblehub.com/greek/strongs_1343.htm)  
-/δικαιόω/ dikaioó [1344 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1344) [39 wystąpień](https://biblehub.com/greek/strongs_1344.htm)
-
 [Rzymian 5,1-2](https://biblia.deon.pl/rozdzial.php?id=274)  
 Dostąpiwszy więc [usprawiedliwienia](/dikaiosyne.md) przez wiarę,
 zachowajmy [pokój](/eirene.md) z Bogiem przez Pana naszego Jezusa Chrystusa,
@@ -27,3 +22,8 @@ w odpuszczaniu ich po to, by ujawnić w obecnym czasie Jego sprawiedliwość, i 
 [2 Koryntian 5,20-21](https://biblia.deon.pl/rozdzial.php?id=999)  
 Pojednajcie się z Bogiem! On to dla nas grzechem uczynił Tego,
 który nie znał grzechu, abyśmy się stali w Nim sprawiedliwością Bożą.
+
+Hebrajski: // tsedeq [6664 biblehub](https://biblehub.com/hebrew/6664.htm) [118 wystąpień](https://biblehub.com/hebrew/strongs_6664.htm)  
+Grecki:  
+/δικαιοσυνη/ dikaiosyne [1343 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1343) [92 wystąpień](https://biblehub.com/greek/strongs_1343.htm)  
+/δικαιόω/ dikaioó [1344 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1344) [39 wystąpień](https://biblehub.com/greek/strongs_1344.htm)

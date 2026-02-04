@@ -1,10 +1,5 @@
 # łaska
 
-Hebrajski:
-// chen [2580 biblehub](https://biblehub.com/hebrew/2580.htm) [69 wystąpień](https://biblehub.com/hebrew/strongs_2580.htm)  
-// checed [2617 biblehub](https://biblehub.com/hebrew/2617.htm) [247 wystąpień](https://biblehub.com/hebrew/strongs_2617.htm)  
-Grecki: /χάρις/ charis [5485 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/5485) [157 wystąpień](https://biblehub.com/greek/strongs_5485.htm)
-
 [Hebrajczyków 4,16](https://biblia.deon.pl/rozdzial.php?id=368)  
 Przybliżmy się więc z ufnością do tronu [łaski](/charis.md),
 abyśmy otrzymali [miłosierdzie](/eleos.md) i pomoc w stosownej chwili.
@@ -25,3 +20,9 @@ i poucza nas, abyśmy wyrzekłszy się bezbożności i żądz światowych, rozum
 i pobożnie [żyli](/zoen.md) na tym świecie, 
 oczekując [błogosławionej](/eulogia.md) [nadziei](/elpis.md) i objawienia się [chwały](/charis.md)
 wielkiego Boga i Zbawiciela naszego, Jezusa Chrystusa
+
+Hebrajski:  
+// chen [2580 biblehub](https://biblehub.com/hebrew/2580.htm) [69 wystąpień](https://biblehub.com/hebrew/strongs_2580.htm)  
+// checed [2617 biblehub](https://biblehub.com/hebrew/2617.htm) [247 wystąpień](https://biblehub.com/hebrew/strongs_2617.htm)  
+Grecki:  
+/χάρις/ charis [5485 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/5485) [157 wystąpień](https://biblehub.com/greek/strongs_5485.htm)

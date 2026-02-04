@@ -1,10 +1,5 @@
 ## chwała
 
-δοξαν (doksan) https://biblia.oblubienica.eu/wystepowanie/strong/id/1391
-
-Hebrajski: // kabowd [3519 biblehub](https://biblehub.com/hebrew/3519.htm) [200 wystąpień](https://biblehub.com/hebrew/strongs_3519.htm)  
-Grecki: /δόξα/ doxa [1391 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1391) [243 wystąpień](https://biblehub.com/greek/strongs_1391.htm)
-
 [Rzymian 5,1-2](https://biblia.deon.pl/rozdzial.php?id=274)  
 Dostąpiwszy więc [usprawiedliwienia](/dikaiosyne.md) przez wiarę,
 zachowajmy [pokój](/eirene.md) z Bogiem przez Pana naszego Jezusa Chrystusa,
@@ -25,3 +20,6 @@ za sprawą Ducha Pańskiego, coraz bardziej jaśniejąc, upodabniamy się do Jeg
 
 [Ew Jana 11,40](https://biblia.deon.pl/rozdzial.php?id=350)  
 Jezus rzekł do niej: «Czyż nie powiedziałem ci, że jeśli uwierzysz, ujrzysz [chwałę](/doxa.md) Bożą?»
+
+Hebrajski: // kabowd [3519 biblehub](https://biblehub.com/hebrew/3519.htm) [200 wystąpień](https://biblehub.com/hebrew/strongs_3519.htm)  
+Grecki: /δόξα/ doxa [1391 oblubienica](https://biblia.oblubienica.eu/wystepowanie/strong/id/1391) [243 wystąpień](https://biblehub.com/greek/strongs_1391.htm)

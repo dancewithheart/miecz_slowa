@@ -1,7 +1,5 @@
 ## opanowanie
 
-Greckie słowo: εγκρατεια (egkrateia) [strong 1466](https://biblia.oblubienica.eu/wystepowanie/strong/id/1466)
-
 [Galatów 5,22-23](https://biblia.deon.pl/rozdzial.php?id=1026)  
 Owocem zaś ducha jest: [miłość](/agape.md), [radość](/chara.md), [pokój](/eirene.md), [cierpliwość](/makrothymia.md), [dobroć](/agathosynes.md), [życzliwość](/chrestotes.md), [wierność](/pistis.md), [łagodność](/praotes.md), **opanowanie**.
 Przeciw takim [cnotom] [nie ma Prawa](/dikaiosyne.md).
@@ -52,3 +50,6 @@ Gdy bowiem będziecie je mieli i to w obfitości, nie uczynią was one bezczynny
 ani bezowocnymi przy poznawaniu Pana naszego Jezusa Chrystusa.
 
 Komu bowiem ich brak, jest ślepym - krótkowidzem i zapomniał o oczyszczeniu z dawnych swoich grzechów.
+
+Greckie słowo: εγκρατεια (egkrateia) [strong 1466](https://biblia.oblubienica.eu/wystepowanie/strong/id/1466)
+

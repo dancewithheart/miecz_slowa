@@ -1,7 +1,5 @@
 ## Prawda
 
-Greckie słowo: αληθεια (aletheia) [strong 225](https://biblia.oblubienica.eu/wystepowanie/strong/id/225)  
-
 [Jan 14,2](https://biblia.deon.pl/rozdzial.php?id=353)  
 W domu Ojca mego jest mieszkań wiele. Gdyby tak nie było, to bym wam powiedział.  
 
@@ -29,7 +27,7 @@ lub nie wykona tego, co oznajmił?
 
 [Izajasz 65,16](https://biblia.deon.pl/rozdzial.php?id=537)  
 Kto w kraju zechce cię pobłogosławić,  
-wypowie swe błogosławieństwo przez Boga prawdy.  
+wypowie swe [błogosławieństwo](/eulogia.md) przez Boga prawdy.  
 Kto w kraju będzie przysięgał,  
 przysięgać będzie na Boga wiernego;  
 bo dawne udręki pójdą w zapomnienie  
@@ -77,3 +75,5 @@ Oto Ty masz upodobanie w ukrytej prawdzie, naucz mnie tajników [mądrości](/so
 
 [Zachariasz 8,18](https://biblia.deon.pl/rozdzial.php?id=824)  
 Miłujcie prawdę i pokój!
+
+Greckie słowo: αληθεια (aletheia) [strong 225](https://biblia.oblubienica.eu/wystepowanie/strong/id/225)  

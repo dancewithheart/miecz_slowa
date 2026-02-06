@@ -597,7 +597,7 @@ i z prawicy Zasiadającego na tronie wziął księgę.
 A kiedy wziął księgę,  
 czworo Zwierząt i dwudziestu czterech Starców upadło przed Barankiem,  
 każdy mając harfę i złote czasze pełne kadzideł,  
-którymi są modlitwy świętych.  
+którymi są [modlitwy](/proseuche.md) świętych.  
 I taką nową pieśń śpiewają:  
 «Godzien jesteś wziąć księgę i jej pieczęcie otworzyć,  
 bo zostałeś zabity  

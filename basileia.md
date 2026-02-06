@@ -299,7 +299,7 @@ A ci, którzy należą do Chrystusa Jezusa, ukrzyżowali ciało swoje z jego nam
 Mając życie od Ducha, do Ducha się też stosujmy. 
 
 [Kolosan 1,9-14](https://biblia.deon.pl/rozdzial.php?id=1397)  
-Nie przestajemy za was się modlić i prosić [Boga],
+Nie przestajemy za was się [modlić](/proseuche.md) i prosić [Boga],
 abyście doszli do pełnego poznania Jego woli,
 w całej [mądrości](/sofia.md) i duchowym zrozumieniu,
 abyście już postępowali w sposób godny Pana,

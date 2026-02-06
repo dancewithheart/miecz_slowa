@@ -89,7 +89,7 @@ Ręka Pana da się poznać Jego sługom,
 [Filipian 4,4-7](https://biblia.deon.pl/rozdzial.php?id=1042)  
 Radujcie się zawsze w Panu; jeszcze raz powtarzam: radujcie się!  
 Niech będzie znana wszystkim ludziom wasza wyrozumiała [łagodność](/praotes.md): Pan jest blisko!  
-O nic się już zbytnio nie troskajcie, ale w każdej sprawie wasze prośby przedstawiajcie Bogu w modlitwie i błaganiu z dziękczynieniem!  
+O nic się już zbytnio nie troskajcie, ale w każdej sprawie wasze prośby przedstawiajcie Bogu w [modlitwie](/proseuche.md) i błaganiu z dziękczynieniem!  
 A [pokój](/eirene.md) Boży, który przewyższa wszelki umysł, będzie strzegł waszych serc i myśli w Chrystusie Jezusie.
 
 [1 Tesaloniczan 5,16-18](https://biblia.deon.pl/rozdzial.php?id=1000)  

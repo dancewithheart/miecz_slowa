@@ -5,7 +5,7 @@ Dlatego opuści człowiek ojca i matkę i złączy się ze swoją żoną, i będ
 A tak już nie są dwoje, lecz jedno ciało. Co więc Bóg złączył, niech człowiek nie rozdziela»
 
 [Rodzaju 24,11-19](https://biblia.deon.pl/rozdzial.php?id=24)  
-Modlił się: Panie, Boże «Pana mego Abrahama, spraw, abym spotkał ją dzisiaj;
+[Modlił](/proseuche.md) się: Panie, Boże «Pana mego Abrahama, spraw, abym spotkał ją dzisiaj;
 bądź łaskaw dla mego pana Abrahama!
 Gdy teraz stoję przy źródle i gdy córki mieszkańców tego miasta wychodzą, aby czerpać wodę,
 niechaj dziewczyna, której powiem:  
@@ -13,7 +13,7 @@ niechaj dziewczyna, której powiem:
 a ona mi odpowie:  
 "Pij, a i wielbłądy twoje napoję",  
 będzie tą, którą przeznaczyłeś dla sługi swego Izaaka; wtedy poznam, że jesteś łaskaw dla mego pana».
-Zanim przestał się modlić, nadeszła Rebeka córka Betuela, syna Milki, żony Nachora, brata Abrahama;
+Zanim przestał się [modlić](/proseuche.md), nadeszła Rebeka córka Betuela, syna Milki, żony Nachora, brata Abrahama;
 wyszła z dzbanem na ramieniu.
 Panna to była bardzo piękna, dziewica, która nie obcowała jeszcze z mężem.
 Ona to zeszła do źródła i napełniwszy swój dzban, wracała.

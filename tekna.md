@@ -20,7 +20,7 @@ Sara stała się brzemienną i urodziła sędziwemu Abrahamowi syna w tym właś
 Abraham dał swemu synowi, którego mu Sara urodziła, imię Izaak.
 
 [Rodzaju 25,21](https://biblia.deon.pl/rozdzial.php?id=25)  
-Izaak modlił się do Pana za swą żonę, gdyż była ona niepłodna.
+Izaak [modlił](/proseuche.md) się do Pana za swą żonę, gdyż była ona niepłodna.
 Pan wysłuchał go, i Rebeka, żona Izaaka, stała się brzemienna.
 
 [Rodzaju 30,22-24](https://biblia.deon.pl/rozdzial.php?id=25)  
@@ -28,7 +28,7 @@ A Bóg zlitował się i nad Rachelą; wysłuchał ją Bóg i otworzył jej łono
 Poczęła i urodziła syna, rzekła (...) Dając mu zaś imię Józef (...)
 
 [1 Samuela 1,10-19](https://biblia.deon.pl/rozdzial.php?id=1162)  
-Anna zaś smutna na duszy zanosiła do Pana modlitwy i płakała nieutulona. (...)
+Anna zaś smutna na duszy zanosiła do Pana [modlitwy](/proseuche.md) i płakała nieutulona. (...)
 Elkana zbliżył się do swojej żony, Anny, a Pan wspomniał na nią.
 Anna poczęła i po upływie dni urodziła syna i nazwała go imieniem Samuel,
 ponieważ [powiedziała]: Uprosiłam go u Pana. 
@@ -62,7 +62,7 @@ Nie mieli jednak dziecka, ponieważ Elżbieta była niepłodna; oboje zaś byli 
 Kiedy w wyznaczonej dla swego oddziału kolei pełnił służbę kapłańską przed Bogiem,
 jemu zgodnie ze zwyczajem kapłańskim przypadł los,
 żeby wejść do przybytku Pańskiego i złożyć ofiarę kadzenia. 
-A cały lud modlił się na zewnątrz w czasie kadzenia.
+A cały lud [modlił](/proseuche.md) się na zewnątrz w czasie kadzenia.
 Naraz ukazał mu się anioł Pański, stojący po prawej stronie ołtarza kadzenia.
 Przeraził się na ten widok Zachariasz i strach padł na niego.
 Lecz anioł rzekł do niego:  

@@ -53,7 +53,7 @@ a On twe ścieżki wyrówna.
 [Filipian 4,4-7](https://biblia.deon.pl/rozdzial.php?id=1042)  
 [Radujcie](/chara.md) się zawsze w Panu; jeszcze raz powtarzam: radujcie się!  
 Niech będzie znana wszystkim ludziom wasza wyrozumiała [łagodność](/praotes.md): Pan jest blisko!  
-O nic się już zbytnio nie troskajcie, ale w każdej sprawie wasze prośby przedstawiajcie Bogu w modlitwie i błaganiu z dziękczynieniem!  
+O nic się już zbytnio nie troskajcie, ale w każdej sprawie wasze prośby przedstawiajcie Bogu w [modlitwie](/proseuche.md) i błaganiu z dziękczynieniem!  
 A [pokój](/eirene.md) Boży, który przewyższa wszelki umysł, będzie strzegł waszych serc i myśli w Chrystusie Jezusie.  
 
 [Hebrajczyków 6,19](https://biblia.deon.pl/rozdzial.php?id=370)  

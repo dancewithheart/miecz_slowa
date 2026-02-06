@@ -24,7 +24,7 @@ Wszystkim tym jednak, którzy Je przyjęli,
 dało [moc](/dynamis.md), aby się stali dziećmi Bożymi
 
 [Kolosan 1,9-14](https://biblia.deon.pl/rozdzial.php?id=1397)  
-Nie przestajemy za was się modlić i prosić [Boga],
+Nie przestajemy za was się [modlić](/proseuche.md) i prosić [Boga],
 abyście doszli do pełnego poznania Jego woli,
 w całej [mądrości](/sofia.md) i duchowym zrozumieniu,
 abyście już postępowali w sposób godny Pana,

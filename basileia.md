@@ -136,6 +136,8 @@ Wytnij je: po co jeszcze ziemię wyjaławia?"
 Lecz on mu odpowiedział: "Panie, jeszcze na ten rok je pozostaw; ja okopię je i obłożę nawozem;
 może wyda owoc. A jeśli nie, w przyszłości możesz je wyciąć"»
 
+![Dzewo figowe](/assets/img/Lu_13_drzewo_figowe.jpg)
+
 [Łukasz 10,30-37](https://biblia.deon.pl/rozdzial.php?id=325) **miłosierny samarytanin**  
 «Pewien człowiek schodził z Jerozolimy do Jerycha i wpadł w ręce zbójców.
 Ci nie tylko że go obdarli, lecz jeszcze rany mu zadali i zostawiwszy na pół umarłego, odeszli.

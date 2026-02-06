@@ -33,7 +33,7 @@ a obuwszy **nogi** w gotowość głoszenia [dobrej nowiny](/euaggelion.md) o [po
 W każdym położeniu bierzcie [wiarę](/pistis.md) jako **tarczę**,
 dzięki której zdołacie zgasić wszystkie rozżarzone pociski Złego.
 Weźcie też **hełm** [zbawienia](/sozo.md)
-i **miecz** [Ducha](/pneuma.md), to jest [słowo Boże](/rhema.md) - wśród wszelakiej modlitwy.
+i **miecz** [Ducha](/pneuma.md), to jest [słowo Boże](/rhema.md) - wśród wszelakiej [modlitwy](/proseuche.md).
 
 # owoce Ducha Świętego
 
@@ -99,7 +99,7 @@ jak jest napisane: a [sprawiedliwy](/dikaiosyne.md) z wiary [żyć](/zoen.md) b�
 [Ew. Marka 11,23-24](https://biblia.deon.pl/rozdzial.php?id=310#W23)  
 Zaprawdę, powiadam wam: Kto powie tej górze: "Podnieś się i rzuć się w morze",  
 a nie wątpi w duszy, lecz [wierzy](/doxa.md), że spełni się to, co mówi, tak mu się stanie.  
-Dlatego powiadam wam: Wszystko, o co w modlitwie prosicie, stanie się wam, tylko [wierzcie](/pistis.md), że otrzymacie.
+Dlatego powiadam wam: Wszystko, o co w [modlitwie](/proseuche.md) prosicie, stanie się wam, tylko [wierzcie](/pistis.md), że otrzymacie.
 
 [Rzymian 10,10](https://biblia.deon.pl/rozdzial.php?id=279#W10)  
 Bo [sercem](/cardia.md) przyjęta [wiara](/pistis.md) prowadzi do [usprawiedliwienia](/dikaiosyne.md), a wyznawanie jej ustami - do [zbawienia](/sozo.md)
@@ -107,7 +107,7 @@ Bo [sercem](/cardia.md) przyjęta [wiara](/pistis.md) prowadzi do [usprawiedliwi
 [Ew. Marka 11,23-24](https://biblia.deon.pl/rozdzial.php?id=310#W23)  
 Kto [powie](/rhema.md) tej górze: "Podnieś się i rzuć się w morze",  
 a nie wątpi w duszy, lecz [wierzy](/pistis.md), że spełni się to, co mówi, tak mu się stanie.  
-Wszystko, o co w modlitwie prosicie, stanie się wam, tylko [wierzcie](pistis.md), że otrzymacie.
+Wszystko, o co w [modlitwie](/proseuche.md) prosicie, stanie się wam, tylko [wierzcie](pistis.md), że otrzymacie.
 
 [Hebrajczyków 11,6](https://biblia.deon.pl/rozdzial.php?id=375#W6)  
 Przystępujący bowiem do Boga musi [uwierzyć](/pistis.md), że [Bóg] jest i że wynagradza tych, którzy Go szukają.
@@ -182,7 +182,7 @@ a w Jego ranach jest nasze zdrowie.
 [Filipian 4,4-7](https://biblia.deon.pl/rozdzial.php?id=1042)  
 [Radujcie](/chara.md) się zawsze w Panu; jeszcze raz powtarzam: radujcie się!  
 Niech będzie znana wszystkim ludziom wasza wyrozumiała [łagodność](/praotes.md): Pan jest blisko!  
-O nic się już zbytnio nie troskajcie, ale w każdej sprawie wasze prośby przedstawiajcie Bogu w modlitwie i błaganiu z [dziękczynieniem](/eucharisteo.md)!  
+O nic się już zbytnio nie troskajcie, ale w każdej sprawie wasze prośby przedstawiajcie Bogu w [modlitwie](/proseuche.md) i błaganiu z [dziękczynieniem](/eucharisteo.md)!  
 A [pokój](/eirene.md) Boży, który przewyższa wszelki umysł,
 będzie strzegł waszych [serc](/cardia.md) i myśli w Chrystusie Jezusie.
 

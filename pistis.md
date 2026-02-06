@@ -27,10 +27,10 @@ Jezus rzekł do niej: «Czyż nie powiedziałem ci, że jeśli uwierzysz, ujrzys
 [Ew. Marka 11,23-24](https://biblia.deon.pl/rozdzial.php?id=310#W23)  
 Zaprawdę, powiadam wam: Kto powie tej górze: "Podnieś się i rzuć się w morze",  
 a nie wątpi w duszy, lecz wierzy, że spełni się to, co mówi, tak mu się stanie.  
-Dlatego powiadam wam: Wszystko, o co w modlitwie prosicie, stanie się wam, tylko wierzcie, że otrzymacie.  
+Dlatego powiadam wam: Wszystko, o co w [modlitwie](/proseuche.md) prosicie, stanie się wam, tylko wierzcie, że otrzymacie.  
 
 [Ew Mateusza 21,22](https://biblia.deon.pl/rozdzial.php?id=264#W22)  
-Otrzymacie wszystko, o co na modlitwie z wiarą prosić będziecie.  
+Otrzymacie wszystko, o co na [modlitwie](/proseuche.md) z wiarą prosić będziecie.  
 
 [Ew Marek 9,23](https://biblia.deon.pl/rozdzial.php?id=308#W23)  
 Wszystko możliwe jest dla tego, kto wierzy  

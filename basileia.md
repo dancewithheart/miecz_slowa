@@ -136,6 +136,8 @@ Wytnij je: po co jeszcze ziemię wyjaławia?"
 Lecz on mu odpowiedział: "Panie, jeszcze na ten rok je pozostaw; ja okopię je i obłożę nawozem;
 może wyda owoc. A jeśli nie, w przyszłości możesz je wyciąć"»
 
+![Dzewo figowe](/assets/img/Lu_13_drzewo_figowe.jpg)
+
 [Łukasz 10,30-37](https://biblia.deon.pl/rozdzial.php?id=325) **miłosierny samarytanin**  
 «Pewien człowiek schodził z Jerozolimy do Jerycha i wpadł w ręce zbójców.
 Ci nie tylko że go obdarli, lecz jeszcze rany mu zadali i zostawiwszy na pół umarłego, odeszli.
@@ -297,7 +299,7 @@ A ci, którzy należą do Chrystusa Jezusa, ukrzyżowali ciało swoje z jego nam
 Mając życie od Ducha, do Ducha się też stosujmy. 
 
 [Kolosan 1,9-14](https://biblia.deon.pl/rozdzial.php?id=1397)  
-Nie przestajemy za was się modlić i prosić [Boga],
+Nie przestajemy za was się [modlić](/proseuche.md) i prosić [Boga],
 abyście doszli do pełnego poznania Jego woli,
 w całej [mądrości](/sofia.md) i duchowym zrozumieniu,
 abyście już postępowali w sposób godny Pana,

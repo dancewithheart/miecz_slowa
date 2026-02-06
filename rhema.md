@@ -34,7 +34,9 @@ a obuwszy **nogi** w gotowość głoszenia [dobrej nowiny](/euaggelion.md) o [po
 W każdym położeniu bierzcie [wiarę](/pistis.md) jako **tarczę**,
 dzięki której zdołacie zgasić wszystkie rozżarzone pociski Złego.
 Weźcie też **hełm** [zbawienia](/sozo.md)
-i **miecz** [Ducha](/pneuma.md), to jest słowo Boże - wśród wszelakiej modlitwy.  
+i **miecz** [Ducha](/pneuma.md), to jest słowo Boże - wśród wszelakiej [modlitwy](/proseuche.md).  
+
+![Pełnia zbroja Boża](/assets/img/Ef_6_miecz_slowa.jpg)
 
 [Psalm 1,1-3](https://biblia.deon.pl/rozdzial.php?id=834)  
 Szczęśliwy mąż,  

@@ -25,7 +25,10 @@ Jeśli brat twój zawini, upomnij go; i jeśli żałuje, przebacz mu! I jeśliby
 [Dzieje 2,32-41](https://biblia.deon.pl/rozdzial.php?id=379)  
 Tego właśnie Jezusa wskrzesił Bóg, a my wszyscy jesteśmy tego świadkami. Wyniesiony na prawicę Boga, otrzymał od Ojca obietnicę Ducha Świętego i zesłał Go, jak to sami widzicie i słyszycie. (...)
 Niech więc cały dom Izraela wie z niewzruszoną pewnością, że tego Jezusa, którego wyście ukrzyżowali, uczynił Bóg i Panem, i Mesjaszem».
-Gdy to usłyszeli, przejęli się do głębi serca: «Cóż mamy czynić, bracia?» - zapytali Piotra i pozostałych Apostołów. «**Nawróćcie się** - powiedział do nich Piotr - i niech każdy z was ochrzci się w imię Jezusa Chrystusa na odpuszczenie grzechów waszych, a weźmiecie w darze Ducha Świętego. Bo dla was jest obietnica i dla dzieci waszych, i dla wszystkich, którzy są daleko, a których powoła Pan Bóg nasz».
+Gdy to usłyszeli, przejęli się do głębi serca: «Cóż mamy czynić, bracia?» - zapytali Piotra i pozostałych Apostołów. «**Nawróćcie się** - powiedział do nich Piotr - i niech każdy z was ochrzci się w imię Jezusa Chrystusa na odpuszczenie grzechów waszych,
+a weźmiecie w darze Ducha Świętego.
+Bo dla was jest obietnica i dla dzieci waszych,
+i dla wszystkich, którzy są daleko, a których [powoła](/kaleo.md) Pan Bóg nasz».
 W wielu też innych słowach dawał świadectwo i napominał: «Ratujcie się spośród tego przewrotnego pokolenia!». Ci więc, którzy przyjęli jego naukę, zostali ochrzczeni. I przyłączyło się owego dnia około trzech tysięcy dusz.
 
 Greckie słowo: μετανοειτε (metanoeite) [strong 3340](https://biblia.oblubienica.eu/wystepowanie/strong/id/3340) vs eπιστρέψει (epistrepsei) [strong 1994](https://biblia.oblubienica.eu/wystepowanie/strong/id/1994)  

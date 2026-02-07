@@ -2,7 +2,7 @@
 
 [2 Piotra 1,3-9](https://biblia.deon.pl/rozdzial.php?id=1085)  
 Tak samo Boska Jego wszechmoc udzieliła nam tego wszystkiego, co się odnosi do [życia](/zoen.md) i pobożności,
-przez poznanie Tego, który powołał nas swoją [chwałą](/doxa.md) i doskonałością.
+przez poznanie Tego, który [powołał](/kaleo.md) nas swoją [chwałą](/doxa.md) i doskonałością.
 Przez nie zostały nam udzielone drogocenne i największe obietnice,
 abyście się przez nie stali uczestnikami Boskiej natury,
 gdy już wyrwaliście się z zepsucia [wywołanego] żądzą na świecie.

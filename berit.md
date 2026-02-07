@@ -395,7 +395,7 @@ Po drugiej stronie Rzeki mieszkali wasi przodkowie od starodawnych czasów: Tera
 którzy służyli bogom cudzym, lecz Ja wziąłem ojca waszego Abrahama z kraju po drugiej stronie Rzeki
 i przeprowadziłem go przez całą ziemię Kanaan i rozmnożyłem róg jego, dając mu Izaaka.
 Izaakowi dałem Jakuba i Ezawa, Ezawowi dałem w posiadanie górę Seir, Jakub i jego synowie wyruszyli do Egiptu.
-Następnie powołałem Mojżesza i Aarona i ukarałem Egipt tym wszystkim, co sprawiłem pośrodku niego,
+Następnie [powołałem](/kaleo.md) Mojżesza i Aarona i ukarałem Egipt tym wszystkim, co sprawiłem pośrodku niego,
 a wtedy was wywiodłem. (...)
 Przeprawiliście się następnie przez Jordan i przyszliście do Jerycha.
 Mieszkańcy Jerycha walczyli z wami, a również Amoryci, Peryzzyci, Kananejczycy, Chetyci, Girgaszyci,

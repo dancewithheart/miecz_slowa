@@ -54,7 +54,7 @@ przez usta swych świętych proroków,
 i z ręki wszystkich, którzy nas nienawidzą;  
 że miłosierdzie okaże ojcom naszym  
 i wspomni na swoje święte Przymierze -  
-na przysięgę19, którą złożył ojcu naszemu, Abrahamowi,  
+na przysięgę, którą złożył ojcu naszemu, Abrahamowi,  
 że nam użyczy tego,  
 iż z mocy nieprzyjaciół wyrwani  
 bez lęku służyć Mu będziemy  

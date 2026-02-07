@@ -103,7 +103,7 @@ Wtedy odszedł od Niej anioł.
 1. Anioł się pokazuje
 
 [Sędziów 6,11-12](https://biblia.deon.pl/rozdzial.php?id=1142)  
-A oto przyszedł Anioł Pana1 i usiadł pod terebintem w Ofra,
+A oto przyszedł Anioł Pana i usiadł pod terebintem w Ofra,
 które należało do Joasza z rodu Abiezera.
 Gedeon, syn jego, młócił na klepisku zboże, aby je ukryć przed Madianitami.
 I ukazał mu się Anioł Pana.  
@@ -168,7 +168,7 @@ Wziął więc Gedeon dziesięciu ludzi ze swej służby i uczynił tak, jak mu P
 [Jeremiasz 1,4-5](https://biblia.deon.pl/rozdzial.php?id=642)  
 Pan skierował do mnie następujące słowo:  
 «Zanim ukształtowałem cię w łonie matki, znałem cię,  
-nim przyszedłeś na świat, poświęciłem cię2,  
+nim przyszedłeś na świat, poświęciłem cię,  
 prorokiem dla narodów ustanowiłem cię».  
 
 2. wątpliwości

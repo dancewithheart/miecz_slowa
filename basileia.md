@@ -348,7 +348,8 @@ jak to sami widzicie i słyszycie. (...)
 Niech więc cały dom Izraela wie z niewzruszoną pewnością, że tego Jezusa,
 którego wyście ukrzyżowali, uczynił Bóg i Panem, i Mesjaszem».
 Gdy to usłyszeli, przejęli się do głębi serca:  
-«Cóż mamy czynić, bracia?» - zapytali Piotra i pozostałych Apostołów. «[Nawróćcie się](/metanoeite.md) - powiedział do nich Piotr - i niech każdy z was ochrzci się w imię Jezusa Chrystusa na odpuszczenie grzechów waszych, a weźmiecie w darze Ducha Świętego. Bo dla was jest obietnica i dla dzieci waszych, i dla wszystkich, którzy są daleko, a których powoła Pan Bóg nasz».
+«Cóż mamy czynić, bracia?» - zapytali Piotra i pozostałych Apostołów. «[Nawróćcie się](/metanoeite.md) - powiedział do nich Piotr - i niech każdy z was ochrzci się w imię Jezusa Chrystusa na odpuszczenie grzechów waszych, a weźmiecie w darze Ducha Świętego. Bo dla was jest obietnica i dla dzieci waszych, i dla wszystkich, którzy są daleko,
+a których [powoła](/kaleo.md) Pan Bóg nasz».
 W wielu też innych słowach dawał świadectwo i napominał: «Ratujcie się spośród tego przewrotnego pokolenia!». Ci więc, którzy przyjęli jego naukę, zostali ochrzczeni. I przyłączyło się owego dnia około trzech tysięcy dusz.
 
 [Kolosan 3, 12-17](https://biblia.deon.pl/rozdzial.php?id=1394)  
@@ -368,11 +369,11 @@ I wszystko, cokolwiek działacie słowem lub czynem, wszystko [czyńcie] w imię
 
 [Efezjan 4,1-6](https://biblia.deon.pl/rozdzial.php?id=1031)  
 Zachęcam was ja, więzień w Panu,
-abyście postępowali w sposób godny powołania, jakim zostaliście wezwani,
+abyście postępowali w sposób godny [powołania](/kaleo.md), jakim zostaliście wezwani,
 z całą [pokorą](/tapeinos.md) i cichością, z [cierpliwością](/makrothymia.md), znosząc siebie nawzajem w [miłości](/agape.md).
 Usiłujcie zachować jedność Ducha dzięki więzi, jaką jest [pokój](/eirene.md).
 Jedno jest Ciało i jeden Duch, bo też zostaliście wezwani do jednej [nadziei](/elpis.md),
-jaką daje wasze powołanie. 
+jaką daje wasze [powołanie](/kaleo.md). 
 Jeden jest Pan, jedna [wiara](/pistis.md), jeden chrzest.
 Jeden jest Bóg i Ojciec wszystkich, który [jest i działa] ponad wszystkimi,
 przez wszystkich i we wszystkich. 

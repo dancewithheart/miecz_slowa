@@ -10,7 +10,7 @@ a [sprawiedliwy](/dikaiosyne.md) z wiary [żyć](/zoen.md) będzie.
 
 [Efezjan 1,18-19](https://biblia.deon.pl/rozdzial.php?id=1028)
 [Niech da] wam światłe oczy [serca](/cardia.md) tak, byście wiedzieli,
-czym jest [nadzieja](/elpis.md) waszego powołania,
+czym jest [nadzieja](/elpis.md) waszego [powołania](/kaleo.md),
 czym bogactwo [chwały](/doxa.md) Jego [dziedzictwa](/kleronomos.md) wśród [świętych](/teleios.md)
 i czym przemożny ogrom Jego mocy względem nas [wierzących](/pistis.md) - na podstawie
 działania Jego potęgi i siły. 

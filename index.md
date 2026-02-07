@@ -258,7 +258,7 @@ Niech cię Pan [błogosławi](/eulogia.md) i strzeże.
 Niech Pan rozpromieni oblicze swe nad tobą, niech cię obdarzy swą [łaską](/charis.md).  
 Niech zwróci ku tobie oblicze swoje i niech cię obdarzy [pokojem](/eirene.md).
 
-[Efezjan 1,3](https://biblia.deon.pl/rozdzial.php?id=1028)
+[Efezjan 1,3](https://biblia.deon.pl/rozdzial.php?id=1028)  
 Niech będzie [błogosławiony](/eulogia.md) Bóg i Ojciec Pana naszego Jezusa Chrystusa,
 On napełnił nas wszelkim [błogosławieństwem](/eulogia.md) duchowym
 na wyżynach niebieskich - w Chrystusie.
@@ -284,6 +284,11 @@ Nie lękaj się, bo Ja jestem z tobą;
 nie trwóż się, bom Ja twoim Bogiem.  
 Umacniam cię, jeszcze i wspomagam,  
 podtrzymuję cię moją prawicą [sprawiedliwą](/dikaiosyne.md).
+
+[Jeremiasz 1,5](https://biblia.deon.pl/rozdzial.php?id=642)  
+Zanim ukształtowałem cię w łonie matki, znałem cię,  
+nim przyszedłeś na świat, poświęciłem cię,  
+prorokiem dla narodów ustanowiłem cię.
 
 # przymierze
 

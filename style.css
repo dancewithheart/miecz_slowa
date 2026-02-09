@@ -1,0 +1,22 @@
+body {
+  background: #0f172a;
+  color: #e5e7eb;
+  font-family: "DejaVu Sans", sans-serif;
+  width: 1920px;
+  height: 1080px;
+  padding: 120px;
+}
+
+h1 {
+  text-align: center;
+  font-size: 64px;
+  margin-bottom: 80px;
+}
+
+blockquote {
+  font-size: 42px;
+  line-height: 1.4;
+  margin-bottom: 60px;
+  border-left: 6px solid #38bdf8;
+  padding-left: 30px;
+}

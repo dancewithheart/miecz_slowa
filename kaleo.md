@@ -171,6 +171,8 @@ Wziął więc Gedeon dziesięciu ludzi ze swej służby i uczynił tak, jak mu P
 
 ## Powołanie Jeremiasza
 
+![Zwiastowanie Jeremiasza](/assets/img/Jeremiasz_powolanie.jpg)
+
 1. Bóg przemawia
 
 [Jeremiasz 1,4-5](https://biblia.deon.pl/rozdzial.php?id=642)  
@@ -199,7 +201,6 @@ byś wyrywał i obalał, byś niszczył i burzył, byś budował i sadził».
 I skierował Pan następujące słowa do mnie: «Co widzisz, Jeremiaszu?»  
 
 ## Powołanie Izajasza
-
 
 ![Zwiastowanie Gedeona](/assets/img/Izajasz_powolanie.jpg)
 

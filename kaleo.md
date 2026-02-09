@@ -196,6 +196,9 @@ I skierował Pan następujące słowa do mnie: «Co widzisz, Jeremiaszu?»
 
 ## Powołanie Izajasza
 
+
+![Zwiastowanie Gedeona](/assets/img/Izajasz_powolanie.jpg)
+
 1. Bóg się objawia
 
 [Izajasz 6,1-4](https://biblia.deon.pl/rozdzial.php?id=478)  

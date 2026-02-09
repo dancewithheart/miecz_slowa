@@ -8,7 +8,9 @@
 4. Bóg uspokaja, oczyszcza, zaopatrza
 5. posłanie na misje
 
-## Powołanie Piotra [Łukasz 5,1-11](https://biblia.deon.pl/rozdzial.php?id=320)
+## Powołanie Piotra
+
+[Łukasz 5,1-11](https://biblia.deon.pl/rozdzial.php?id=320&werset=1#W1), [Mk 1,16-20](https://biblia.deon.pl/rozdzial.php?id=267&werset=16#W16), [Mateusz 4,18-20](https://biblia.deon.pl/rozdzial.php?id=247&werset=18#W18), [Jan 1,40-42](https://biblia.deon.pl/rozdzial.php?id=340&werset=40#W40)
 
 1. Jezus się objawia
 
@@ -54,7 +56,9 @@ Lecz Jezus rzekł do Szymona: «Nie bój się, odtąd ludzi będziesz łowił»
 [Łukasz 5,11](https://biblia.deon.pl/rozdzial.php?id=320)
 I przyciągnąwszy łodzie do brzegu, zostawili wszystko i poszli za Nim.
 
-## Powołanie Maryji [Łukasz 1,26-38](https://biblia.deon.pl/rozdzial.php?id=316)
+## Powołanie Maryji
+
+[Łukasz 1,26-38](https://biblia.deon.pl/rozdzial.php?id=316), [Mateusz 1,18](https://biblia.deon.pl/rozdzial.php?id=244&werset=18#W18)
 
 1. Anioł Gabriel objawia się
 
@@ -237,7 +241,7 @@ Odpowiedziałem: «Oto ja, poślij mnie!»
 I rzekł [mi]:  
 «Idź i mów do tego ludu
 
-## Powołanie Mojżesza [Wyjścia 3,1-12](https://biblia.deon.pl/rozdzial.php?id=53)
+## Powołanie Mojżesza
 
 1. Anioł Pański się pokazuje
 

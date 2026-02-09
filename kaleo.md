@@ -8,7 +8,11 @@
 4. Bóg uspokaja, oczyszcza, zaopatrza
 5. posłanie na misje
 
-## Powołanie Piotra [Łukasz 5,1-11](https://biblia.deon.pl/rozdzial.php?id=320)
+## Powołanie Piotra
+
+[Łukasz 5,1-11](https://biblia.deon.pl/rozdzial.php?id=320&werset=1#W1), [Mk 1,16-20](https://biblia.deon.pl/rozdzial.php?id=267&werset=16#W16), [Mateusz 4,18-20](https://biblia.deon.pl/rozdzial.php?id=247&werset=18#W18), [Jan 1,40-42](https://biblia.deon.pl/rozdzial.php?id=340&werset=40#W40)
+
+![Powołane Piotra](/assets/img/Lk5_porwane_sieci.jpg)
 
 1. Jezus się objawia
 
@@ -37,8 +41,6 @@ Skoro to uczynili, zagarnęli tak wielkie mnóstwo ryb,
 Skinęli więc na wspólników w drugiej łodzi, żeby im przyszli z pomocą.
 Ci podpłynęli; i napełnili obie łodzie, tak że się prawie zanurzały
 
-![Przypowieść o perle](/assets/img/Lk5_porwane_sieci.jpg)
-
 4. wątpliwość
 
 [Łukasz 5,8](https://biblia.deon.pl/rozdzial.php?id=320)
@@ -54,7 +56,11 @@ Lecz Jezus rzekł do Szymona: «Nie bój się, odtąd ludzi będziesz łowił»
 [Łukasz 5,11](https://biblia.deon.pl/rozdzial.php?id=320)
 I przyciągnąwszy łodzie do brzegu, zostawili wszystko i poszli za Nim.
 
-## Powołanie Maryji [Łukasz 1,26-38](https://biblia.deon.pl/rozdzial.php?id=316)
+## Powołanie Maryji
+
+[Łukasz 1,26-38](https://biblia.deon.pl/rozdzial.php?id=316), [Mateusz 1,18](https://biblia.deon.pl/rozdzial.php?id=244&werset=18#W18)
+
+![Zwiastowanie Maryji](/assets/img/Lukasz_1_zwiastowanie_Maryji.jpg)
 
 1. Anioł Gabriel objawia się
 
@@ -99,6 +105,8 @@ Na to rzekła Maryja:
 Wtedy odszedł od Niej anioł.
 
 ## Powołanie Gedeona
+
+![Zwiastowanie Gedeona](/assets/img/Sedz_6_Gedeon.jpg)
 
 1. Anioł się pokazuje
 
@@ -163,6 +171,8 @@ Wziął więc Gedeon dziesięciu ludzi ze swej służby i uczynił tak, jak mu P
 
 ## Powołanie Jeremiasza
 
+![Zwiastowanie Jeremiasza](/assets/img/Jeremiasz_powolanie.jpg)
+
 1. Bóg przemawia
 
 [Jeremiasz 1,4-5](https://biblia.deon.pl/rozdzial.php?id=642)  
@@ -188,9 +198,11 @@ I wyciągnąwszy rękę, dotknął Pan moich ust i rzekł mi:
 «Oto kładę moje słowa w twoje usta.
 Spójrz, daję ci dzisiaj władzę nad narodami i nad królestwami,
 byś wyrywał i obalał, byś niszczył i burzył, byś budował i sadził».  
-I skierował Pan następujące słowa do mnie: «Co widzisz, Jeremiaszu?»  
+I skierował Pan następujące słowa do mnie: «Co widzisz, Jeremiaszu?»
 
 ## Powołanie Izajasza
+
+![Zwiastowanie Izajasza](/assets/img/Izajasz_powolanie.jpg)
 
 1. Bóg się objawia
 
@@ -230,7 +242,7 @@ Odpowiedziałem: «Oto ja, poślij mnie!»
 I rzekł [mi]:  
 «Idź i mów do tego ludu
 
-## Powołanie Mojżesza [Wyjścia 3,1-12](https://biblia.deon.pl/rozdzial.php?id=53)
+## Powołanie Mojżesza
 
 1. Anioł Pański się pokazuje
 

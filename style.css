@@ -1,22 +1,25 @@
+@charset "UTF-8";
+
+html, body {
+  margin: 0;
+}
+
 body {
   background: #0f172a;
   color: #e5e7eb;
-  font-family: "DejaVu Sans", sans-serif;
+  font-family: "Noto Sans", "DejaVu Sans", sans-serif;
   width: 1920px;
   height: 1080px;
-  padding: 120px;
+  /* top | right | bottom | left */
+  padding: 180px 120px 120px 120px;
 }
 
-h1 {
-  text-align: center;
-  font-size: 64px;
-  margin-bottom: 80px;
-}
-
+/* Quote content */
 blockquote {
-  font-size: 42px;
-  line-height: 1.4;
-  margin-bottom: 60px;
-  border-left: 6px solid #38bdf8;
+  font-size: 40px;        /* <<< quote text size */
+  line-height: 1.45;
+  margin-left: 0;
+  margin-bottom: 70px;
   padding-left: 30px;
+  border-left: 6px solid #38bdf8;
 }

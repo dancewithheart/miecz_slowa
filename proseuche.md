@@ -43,6 +43,8 @@ pomny na miłosierdzie swoje -
 jak przyobiecał naszym ojcom -  
 na rzecz Abrahama i jego potomstwa na wieki».  
 
+![Zwiastowanie Maryji](/assets/img/Lukasz_1_zwiastowanie_Maryji.jpg)
+
 [Łukasz 1,68-79](https://biblia.deon.pl/rozdzial.php?id=316&werset=68#W68) **Zachariasz** - **Benedictus**  
 «Niech będzie uwielbiony Pan, Bóg Izraela,  
 że nawiedził lud swój i wyzwolił go,  

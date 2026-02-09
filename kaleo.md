@@ -98,6 +98,8 @@ Na to rzekła Maryja:
 «Oto Ja służebnica Pańska, niech Mi się stanie według twego słowa!»  
 Wtedy odszedł od Niej anioł.
 
+![Zwiastowanie Maryji](/assets/img/Lukasz_1_zwiastowanie_Maryji.jpg)
+
 ## Powołanie Gedeona
 
 1. Anioł się pokazuje
@@ -160,6 +162,8 @@ na szczycie tej skały układając [kamienie],
 weźmiesz tego drugiego cielca i złożysz z niego ofiarę całopalną,
 używając drewna ściętej aszery».  
 Wziął więc Gedeon dziesięciu ludzi ze swej służby i uczynił tak, jak mu Pan nakazał.
+
+![Zwiastowanie Gedeona](/assets/img/Sedz_6_Gedeon.jpg)
 
 ## Powołanie Jeremiasza
 

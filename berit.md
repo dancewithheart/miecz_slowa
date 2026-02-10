@@ -240,6 +240,8 @@ dlatego że usłuchałeś mego rozkazu».
 
 ## Mojżesz
 
+![Mojżesz](/assets/img/Mojzesz.jpg)
+
 [Wyjścia 19,3-25](https://biblia.deon.pl/rozdzial.php?id=69) - [Wyjścia 20,1-24](https://biblia.deon.pl/rozdzial.php?id=70)  
 Mojżesz wstąpił wtedy do Boga, a Pan zawołał na niego z góry i powiedział:  
 «Tak powiesz domowi Jakuba i to oznajmisz Izraelitom:  

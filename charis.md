@@ -21,6 +21,24 @@ i pobożnie [żyli](/zoen.md) na tym świecie,
 oczekując [błogosławionej](/eulogia.md) [nadziei](/elpis.md) i objawienia się [chwały](/charis.md)
 wielkiego Boga i Zbawiciela naszego, Jezusa Chrystusa
 
+[Psalm 63,2-5](https://biblia.deon.pl/rozdzial.php?id=896)  
+Boże, Ty Boże mój, Ciebie szukam;  
+Ciebie pragnie moja dusza,  
+za Tobą tęskni moje ciało,  
+jak ziemia zeschła, spragniona, bez wody.  
+W świątyni tak się wpatruję w Ciebie,  
+bym ujrzał Twoją potęgę i [chwałę](/doxa.md).  
+Skoro łaska Twoja lepsza jest od [życia](/zoen.md),  
+moje wargi będą Cię sławić.  
+Tak błogosławię Cię w moim [życiu](/zoen.md):  
+wzniosę ręce w imię Twoje.
+
+[Jan 1,14-16](https://biblia.deon.pl/rozdzial.php?id=340)  
+A [Słowo](/rhema.md) stało się ciałem i zamieszkało wśród nas.
+I oglądaliśmy Jego chwałę, chwałę, jaką Jednorodzony otrzymuje od Ojca,
+pełen [łaski](/charis.md) i [prawdy](/aletheia.md). (...)  
+Z Jego pełności wszyscyśmy otrzymali - łaskę po łasce.
+
 Hebrajski:  
 // chen [2580 biblehub](https://biblehub.com/hebrew/2580.htm) [69 wystąpień](https://biblehub.com/hebrew/strongs_2580.htm)  
 // checed [2617 biblehub](https://biblehub.com/hebrew/2617.htm) [247 wystąpień](https://biblehub.com/hebrew/strongs_2617.htm)  

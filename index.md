@@ -20,7 +20,7 @@ Jeżeli będziecie trwać w nauce mojej, będziecie prawdziwie moimi uczniami i 
 * [modlitwa o dzieci](/tekna.md)
 * [modlitwa o męża/żonę](/gamos.md)
 
-# słowo Boże
+# [słowo Boże](/rhema.md)
 
 ![Pełnia zbroja Boża](/assets/img/Ef_6_miecz_slowa.jpg)
 
@@ -41,7 +41,7 @@ i **miecz** [Ducha](/pneuma.md), to jest [słowo Boże](/rhema.md) - wśród wsz
 Owocem zaś ducha jest: [miłość](/agape.md), [radość](/chara.md), [pokój](/eirene.md), [cierpliwość](/makrothymia.md), [dobroć](/agathosynes.md), [życzliwość](/chrestotes.md), [wierność](/pistis.md), [łagodność](/praotes.md), [opanowanie](/egkrateia.md).
 Przeciw takim [cnotom] [nie ma Prawa](/dikaiosyne.md).
 
-# miłość
+# [miłość](/agape.md)
 
 [1 Koryntian 13,4-13](https://biblia.deon.pl/rozdzial.php?id=298)  
 [Miłość](/agape.md) [cierpliwa](/makrothymia.md) jest,  
@@ -84,7 +84,7 @@ Będziesz [miłował](/agape.md) bliźniego swego jak siebie samego.
 My zaś z pomocą Ducha, na zasadzie [wiary](/pistis.md) wyczekujemy spodziewanej [sprawiedliwości](/dikaiosyne.md).  
 Albowiem w Chrystusie Jezusie ani obrzezanie, ani jego brak nie mają żadnego znaczenia, tylko wiara, która działa przez [miłość](/agape.md).  
 
-# wiara
+# [wiara](/pistis.md)
 
 [Hebrajczyków 11,1](https://biblia.deon.pl/rozdzial.php?id=375#W1)  
 [Wiara](/pistis.md) zaś jest poręką tych dóbr, których się spodziewamy, dowodem tych rzeczywistości, których nie widzimy.
@@ -112,7 +112,7 @@ Wszystko, o co w [modlitwie](/proseuche.md) prosicie, stanie się wam, tylko [wi
 [Hebrajczyków 11,6](https://biblia.deon.pl/rozdzial.php?id=375#W6)  
 Przystępujący bowiem do Boga musi [uwierzyć](/pistis.md), że [Bóg] jest i że wynagradza tych, którzy Go szukają.
 
-# nadzieja
+# [nadzieja](/elpis.md)
 
 [Rzymian 8,24-25](https://biblia.deon.pl/rozdzial.php?id=277)  
 W [nadziei](/elpis.md) bowiem już jesteśmy [zbawieni](/sozo.md).
@@ -131,7 +131,7 @@ Potrzebujecie bowiem [wytrwałości](/hypomenes.md), abyście spełniając wolę
 [Psalm 130,5](https://biblia.deon.pl/rozdzial.php?id=963)
 W Panu pokładam [nadzieję](/elpis.md), nadzieję żywi moja dusza: oczekuję na Twe [słowo](/rhema.md).
 
-# łaska
+# [łaska](/charis.md)
 
 [Hebrajczyków 4,16](https://biblia.deon.pl/rozdzial.php?id=368)  
 Przybliżmy się więc z ufnością do tronu [łaski](/charis.md),
@@ -150,7 +150,7 @@ i pobożnie [żyli](/zoen.md) na tym świecie,
 oczekując [błogosławionej](/eulogia.md) [nadziei](/elpis.md) i objawienia się [chwały](/charis.md)
 wielkiego Boga i Zbawiciela naszego, Jezusa Chrystusa
 
-# zbawienie
+# [zbawienie](/sozo.md)
 
 [Efezjan 2,8-10](https://biblia.deon.pl/rozdzial.php?id=1029)  
 [Łaską](/charis.md) bowiem jesteście [zbawieni](/sozo.md) przez [wiarę](/pistis.md).
@@ -177,7 +177,7 @@ zdruzgotany za nasze winy.
 Spadła Nań chłosta [zbawienna](/sozo.md) dla nas,  
 a w Jego ranach jest nasze zdrowie.
 
-# radość
+# [radość](/chara.md)
 
 [Filipian 4,4-7](https://biblia.deon.pl/rozdzial.php?id=1042)  
 [Radujcie](/chara.md) się zawsze w Panu; jeszcze raz powtarzam: radujcie się!  
@@ -186,7 +186,7 @@ O nic się już zbytnio nie troskajcie, ale w każdej sprawie wasze prośby prze
 A [pokój](/eirene.md) Boży, który przewyższa wszelki umysł,
 będzie strzegł waszych [serc](/cardia.md) i myśli w Chrystusie Jezusie.
 
-# życie
+# [życie](/zoen.md)
 
 [Jan 10,10](https://biblia.deon.pl/rozdzial.php?id=349)  
 Ja przyszedłem po to, aby [owce] miały [życie](/zoen.md) i miały je w obfitości.
@@ -195,13 +195,13 @@ Ja przyszedłem po to, aby [owce] miały [życie](/zoen.md) i miały je w obfito
 W tym objawiła się [miłość](/agape.md) Boga ku nam, że zesłał Syna swego Jednorodzonego na świat,
 abyśmy [życie](/zoen.md) mieli dzięki Niemu.
 
-# zmiana myślenia / nawrócenie
+# [zmiana myślenia / nawrócenie](/metanoeite.md)
 
 [Rzymian 12,2](https://biblia.deon.pl/rozdzial.php?id=281)   
 Przemieniajcie się przez [odnawianie umysłu](/metanoeite.md), abyście umieli rozpoznać,
 jaka jest wola Boża: co jest dobre, co Bogu przyjemne i co [doskonałe](/teleios.md).  
 
-# Boża moc
+# [Boża moc](/dynamis.md)
 
 [Rzymian 1,16-17](https://biblia.deon.pl/rozdzial.php?id=270)  
 Bo ja nie wstydzę się [Ewangelii](/euaggelion.md), jest bowiem ona [mocą Bożą](/dynamis.md) ku [zbawieniu](/sozo.md) dla każdego [wierzącego](/pistis.md), najpierw dla Żyda, potem dla Greka.
@@ -220,7 +220,7 @@ gdy Duch Święty zstąpi na was, otrzymacie [Jego moc](/dynamis.md) i będzieci
 w Jerozolimie i w całej Judei,
 i w Samarii, i aż po krańce ziemi.
 
-# chwała
+# [chwała](/doxa.md)
 
 [Rzymian 8,18](https://biblia.deon.pl/rozdzial.php?id=277)  
 Cierpień teraźniejszych nie można stawiać na równi z [chwałą](/doxa.md), która ma się w nas objawić
@@ -237,7 +237,7 @@ za sprawą Ducha Pańskiego, coraz bardziej jaśniejąc, upodabniamy się do Jeg
 [Ew Jana 11,40](https://biblia.deon.pl/rozdzial.php?id=350)  
 Jezus rzekł do niej: «Czyż nie powiedziałem ci, że jeśli uwierzysz, ujrzysz [chwałę](/doxa.md) Bożą?»
 
-# błogosławieństwo
+# [błogosławieństwo](/eulogia.md)
 
 [Rodzaj 1,28](https://biblia.deon.pl/rozdzial.php?id=1#W28)  
 «Bądźcie płodni i rozmnażajcie się,
@@ -290,9 +290,11 @@ Zanim ukształtowałem cię w łonie matki, znałem cię,
 nim przyszedłeś na świat, poświęciłem cię,  
 prorokiem dla narodów ustanowiłem cię.
 
-# przymierze
+# [przymierze](/berit.md)
 
-[Rodzaju 17,1-16](https://biblia.deon.pl/rozdzial.php?id=17) **Abraham przymierze**  
+![Abraham](/assets/img/Abraham.jpg)
+
+[Rodzaju 17,1-16](https://biblia.deon.pl/rozdzial.php?id=17)  
 A gdy Abram miał dziewięćdziesiąt dziewięć lat, ukazał mu się Pan i rzekł do niego:  
 «Jam jest Bóg Wszechmogący. Służ Mi i bądź nieskazitelny,
 chcę bowiem zawrzeć moje przymierze pomiędzy Mną a tobą i dać ci niezmiernie liczne potomstwo».  
@@ -310,17 +312,19 @@ Potem Bóg rzekł do Abrahama:
 «Ty zaś, a po tobie twoje potomstwo przez wszystkie pokolenia, zachowujcie przymierze ze Mną.
 Przymierze, które będziecie zachowywali między Mną a wami, czyli twoim przyszłym potomstwem, polega na tym:
 wszyscy wasi mężczyźni mają być obrzezani;
-będziecie obrzezywali ciało napletka na znak [przymierza](/eulogia.md) waszego ze Mną.
+będziecie obrzezywali ciało napletka na znak [przymierza](/berit.md) waszego ze Mną.
 Z pokolenia w pokolenie każde wasze dziecko płci męskiej, gdy będzie miało osiem dni,
 ma być obrzezane - sługa urodzony w waszym domu lub nabyty za pieniądze - każdy obcy,
 który nie jest potomkiem twoim - ma być obrzezany;
 obrzezany ma być sługa urodzony w domu twoim lub nabyty za pieniądze.
-[Przymierze](/eulogia.md) moje, przymierze obrzezania, będzie przymierzem na zawsze.
+[Przymierze](/berit.md) moje, przymierze obrzezania, będzie przymierzem na zawsze.
 Nieobrzezany, czyli mężczyzna, któremu nie obrzezano ciała jego napletka,
 taki człowiek niechaj będzie usunięty ze społeczności twojej;
-zerwał on bowiem [przymierze](/eulogia.md) ze Mną».
+zerwał on bowiem [przymierze](/berit.md) ze Mną».
 
-[Wyjścia 19,3-25](https://biblia.deon.pl/rozdzial.php?id=69) - [Wyjścia 20,1-24](https://biblia.deon.pl/rozdzial.php?id=70) **Mojżesz przymierze**  
+![Mojżesz](/assets/img/Mojzesz.jpg)
+
+[Wyjścia 19,3-25](https://biblia.deon.pl/rozdzial.php?id=69) - [Wyjścia 20,1-24](https://biblia.deon.pl/rozdzial.php?id=70)  
 Mojżesz wstąpił wtedy do Boga, a Pan zawołał na niego z góry i powiedział:  
 «Tak powiesz domowi Jakuba i to oznajmisz Izraelitom:  
 Wyście widzieli, co uczyniłem Egiptowi, jak niosłem was na skrzydłach orlich i przywiodłem was do Mnie.

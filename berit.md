@@ -474,7 +474,7 @@ I nie będą się musieli wzajemnie pouczać
 jeden mówiąc do drugiego:  
 "Poznajcie Pana!"  
 Wszyscy bowiem od najmniejszego do największego  
-poznają Mnie19 - wyrocznia Pana,  
+poznają Mnie - wyrocznia Pana,  
 ponieważ odpuszczę im występki,  
 a o grzechach ich nie będę już wspominał».  
 

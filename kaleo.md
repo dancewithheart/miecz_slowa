@@ -363,7 +363,7 @@ a woda zaczerpnięta z Nilu stanie się krwią na ziemi».
 
 [Wyjścia 4,10](https://biblia.deon.pl/rozdzial.php?id=54)  
 I rzekł Mojżesz do Pana:  
-«Wybacz, Panie, ale ja nie jestem wymowny, od wczoraj i przedwczoraj1,
+«Wybacz, Panie, ale ja nie jestem wymowny, od wczoraj i przedwczoraj,
 a nawet od czasu, gdy przemawiasz do Twego sługi.
 Ociężały usta moje i język mój zesztywniał».  
 
@@ -485,7 +485,7 @@ I wzięli Jonasza, i wrzucili go w morze, a ono przestało się srożyć.
 Ogarnęła wtedy tych ludzi bojaźń przed Panem. Złożyli Panu ofiarę i uczynili śluby.
 
 [Jonasz 2](https://biblia.deon.pl/rozdzial.php?id=796)  
-Pan zesłał wielką rybę1, aby połknęła Jonasza.
+Pan zesłał wielką rybę, aby połknęła Jonasza.
 I był Jonasz we wnętrznościach ryby trzy dni i trzy noce.
 Z wnętrzności ryby modlił się Jonasz do swego Pana Boga. (...)
 Pan nakazał rybie i wyrzuciła Jonasza na ląd.

@@ -93,7 +93,7 @@ i wszystkie krańce ziemi zobaczą
 [Izajasz 61,1-2](https://biblia.deon.pl/rozdzial.php?id=533)  
 Duch Pana Boga nade mną,  
 bo Pan mnie namaścił.  
-Posłał mnie, by głosić dobrą nowinę ubogim,  
+[Posłał](/kaleo.md) mnie, by głosić dobrą nowinę ubogim,  
 by opatrywać rany serc złamanych,  
 by zapowiadać [wyzwolenie](/eleutheros.md) jeńcom  
 i więźniom swobodę;  

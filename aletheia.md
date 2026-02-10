@@ -36,7 +36,7 @@ i będą zakryte przed mymi oczami.
 [Jan 17,14-18](https://biblia.deon.pl/rozdzial.php?id=356)  
 Ja im przekazałem Twoje [słowo](/rhema.md), a świat ich znienawidził za to, że nie są ze świata, jak i Ja nie jestem ze świata. (...)  
 Uświęć ich w prawdzie. [Słowo](/rhema.md) Twoje jest prawdą.  
-Jak Ty Mnie posłałeś na świat, tak i Ja ich na świat posłałem.  
+Jak Ty Mnie [posłałeś](/kaleo.md) na świat, tak i Ja ich na świat posłałem.  
 
 [Jan 17,20-21](https://biblia.deon.pl/rozdzial.php?id=356)    
 Nie tylko za nimi proszę, ale i za tymi, którzy dzięki ich słowu będą [wierzyć](/pistis.md) we Mnie;  

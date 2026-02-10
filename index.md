@@ -70,7 +70,7 @@ abyśmy [życie](/zoen.md) mieli dzięki Niemu.
 W tym przejawia się miłość,  
 że nie my umiłowaliśmy Boga,  
 ale że On sam nas umiłował  
-i posłał Syna swojego jako ofiarę przebłagalną za nasze grzechy.  
+i [posłał](/kaleo.md) Syna swojego jako ofiarę przebłagalną za nasze grzechy.  
 Umiłowani, jeśli Bóg tak nas umiłował,  
 to i my winniśmy się wzajemnie miłować.
 
@@ -384,7 +384,7 @@ litera bowiem zabija, Duch zaś ożywia
 # Bóg posyła
 
 [Jan 20,21](https://biblia.deon.pl/rozdzial.php?id=359)  
-Jak Ojciec Mnie posłał, tak i Ja was posyłam.
+Jak Ojciec Mnie [posłał](/kaleo.md), tak i Ja was posyłam.
 
 [Marek 16,15](https://biblia.deon.pl/rozdzial.php?id=315)  
 Idźcie na cały świat i głoście [Ewangelię](/euaggelion.md) wszelkiemu stworzeniu!

@@ -367,6 +367,8 @@ Potem jedli i pili.
 
 ## Dawid
 
+![Dawid](/assets/img/Dawid.jpg)
+
 [2 Samuela 7,8-16](https://biblia.deon.pl/rozdzial.php?id=1214)  
 Przemówisz do sługi mojego, Dawida:  
 To mówi Pan Zastępów:  
@@ -392,7 +394,7 @@ Twój tron będzie utwierdzony na wieki».
 
 ## Jozue
 
-![Powołanie Jozuego](/assets/img/Jozue.jpg)
+![Jozue](/assets/img/Jozue.jpg)
 
 [Jozuego 24,1-27](https://biblia.deon.pl/rozdzial.php?id=1136)  
 Jozue zgromadził w Sychem wszystkie pokolenia Izraela.
@@ -461,6 +463,8 @@ Następnie król stanął przy kolumnie i zawarł [przymierze](/berit.md) przed 
 że w czyn zamienią słowa tego przymierza, spisane w tejże księdze. I cały lud przystąpił do przymierza.
 
 ## Jezus Chrystus
+
+![Jezus](/assets/img/Jezus.jpg)
 
 [Jeremiasz 31,31-34](https://biblia.deon.pl/rozdzial.php?id=672&werset=31#W31)  
 Oto nadchodzą dni - wyrocznia Pana -  

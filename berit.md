@@ -390,6 +390,8 @@ Twój tron będzie utwierdzony na wieki».
 
 ## Jozue
 
+![Powołanie Jozuego](/assets/img/Jozue.jpg)
+
 [Jozuego 24,1-27](https://biblia.deon.pl/rozdzial.php?id=1136)  
 Jozue zgromadził w Sychem wszystkie pokolenia Izraela.
 Wezwał też starszych Izraela, jego książąt, sędziów i zwierzchników, którzy się stawili przed Bogiem.

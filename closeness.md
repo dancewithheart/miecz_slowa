@@ -50,7 +50,9 @@ kiedy w ukryciu powstawałem,
 utkany w głębi ziemi.
 
 [Jozuego 1,9](https://biblia.deon.pl/rozdzial.php?id=1113)  
-Czyż ci nie rozkazałem: Bądź mężny i [mocny](/dynamis.md)? Nie bój się i [nie lękaj](/elpis.md), ponieważ z tobą jest Pan, Bóg twój, wszędzie, gdziekolwiek pójdziesz»
+Czyż ci nie rozkazałem: Bądź mężny i [mocny](/dynamis.md)?  
+Nie bój się i [nie lękaj](/elpis.md), ponieważ z tobą jest Pan,  
+Bóg twój, wszędzie, gdziekolwiek pójdziesz»
 
 [Hebrajczyków 13,5](https://biblia.deon.pl/rozdzial.php?id=377)  
 Nie opuszczę cię ani pozostawię

@@ -466,7 +466,7 @@ Natychmiast jakby łuski spadły z jego oczu i odzyskał wzrok, i został ochrzc
 
 Jakiś czas spędził z uczniami w Damaszku i zaraz zaczął głosić w synagogach, że Jezus jest Synem Bożym.
 
-## Powaołanie Jonasza
+## Powołanie Jonasza
 
 [Jonasz 1](https://biblia.deon.pl/rozdzial.php?id=795)  
 Pan skierował do Jonasza, syna Amittaja, te słowa:  
@@ -502,7 +502,7 @@ I uwierzyli mieszkańcy Niniwy Bogu, ogłosili post i oblekli się w wory od naj
 
 ## Powołanie Abrahama
 
-[Rodzaju 12,1-4](https://biblia.deon.pl/rozdzial.php?id=12) **Abram wyrusza do Kanaanu**  
+[Rodzaju 12,1-4](https://biblia.deon.pl/rozdzial.php?id=12)  
 Pan rzekł do Abrama:  
 «Wyjdź z twojej ziemi rodzinnej i z domu twego ojca do kraju, który ci ukażę.  
 Uczynię bowiem z ciebie wielki naród, będę ci [błogosławił](./eulogia.md) i twoje imię rozsławię:
@@ -514,6 +514,8 @@ Abram udał się w drogę, jak mu Pan rozkazał, a z nim poszedł i Lot.
 Abram miał siedemdziesiąt pięć lat, gdy wyszedł z Charanu. (...)
 
 ## Powołanie Jozuego
+
+![Powołanie Jozuego](/assets/img/Jozue.jpg)
 
 [Jozuego 1,1-9](https://biblia.deon.pl/rozdzial.php?id=1113)  
 Po śmierci Mojżesza, sługi Pana, rzekł Pan do Jozuego, syna Nuna, pomocnika Mojżesza:  

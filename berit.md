@@ -2,6 +2,8 @@
 
 ## Adam i Ewa
 
+![Adam i Ewa](/assets/img/Adam_Ewa.jpg)
+
 [Rodzaju 1,24-28](https://biblia.deon.pl/rozdzial.php?id=1#W24)  
 Potem Bóg rzekł:  
 «Niechaj ziemia wyda istoty żywe różnego rodzaju:
@@ -102,9 +104,9 @@ które jest na ziemi».
 Rzekł Bóg do Noego:  
 «To jest znak przymierza, które zawarłem między Mną a wszystkimi istotami, jakie są na ziemi».
 
-## Abraham
+## Abram (Abraham)
 
-![Powołanie Abrahama](/assets/img/Abraham.jpg)
+![Abraham](/assets/img/Abraham.jpg)
 
 [Rodzaju 12,1-7](https://biblia.deon.pl/rozdzial.php?id=12) **Abram wyrusza do Kanaanu**  
 Pan rzekł do Abrama:  

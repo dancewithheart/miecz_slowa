@@ -1,12 +1,4 @@
-# powołanie
-
-## etapy powołania
-
-1. teofania (Bóg się objawia)
-2. misja powołania (jej cel)
-3. wątpliwości
-4. Bóg uspokaja, oczyszcza, zaopatrza
-5. posłanie na misje
+# powołanie, posłanie
 
 ## Powołanie Piotra
 
@@ -244,6 +236,8 @@ I rzekł [mi]:
 
 ## Powołanie Mojżesza
 
+![Powołanie Mojżesza](/assets/img/Mojzesz.jpg)
+
 1. Anioł Pański się pokazuje
 
 [Wyjścia 3,1-2](https://biblia.deon.pl/rozdzial.php?id=53)  
@@ -369,7 +363,7 @@ a woda zaczerpnięta z Nilu stanie się krwią na ziemi».
 
 [Wyjścia 4,10](https://biblia.deon.pl/rozdzial.php?id=54)  
 I rzekł Mojżesz do Pana:  
-«Wybacz, Panie, ale ja nie jestem wymowny, od wczoraj i przedwczoraj1,
+«Wybacz, Panie, ale ja nie jestem wymowny, od wczoraj i przedwczoraj,
 a nawet od czasu, gdy przemawiasz do Twego sługi.
 Ociężały usta moje i język mój zesztywniał».  
 
@@ -409,6 +403,8 @@ Wziął Mojżesz swą żonę i synów, wsadził ich na osła i powracał do ziem
 Wziął też Mojżesz ze sobą laskę Boga.
 
 ## Powołanie Pawła (Szawła z Tarsu)
+
+![Powołanie Pawła](/assets/img/Pawel.jpg)
 
 1. Szaweł prześladuje uczniów Jezusa
 
@@ -470,7 +466,9 @@ Natychmiast jakby łuski spadły z jego oczu i odzyskał wzrok, i został ochrzc
 
 Jakiś czas spędził z uczniami w Damaszku i zaraz zaczął głosić w synagogach, że Jezus jest Synem Bożym.
 
-## Powaołanie Jonasza
+## Powołanie Jonasza
+
+![Powołanie Jonasza](/assets/img/Jonasz.jpg)
 
 [Jonasz 1](https://biblia.deon.pl/rozdzial.php?id=795)  
 Pan skierował do Jonasza, syna Amittaja, te słowa:  
@@ -491,7 +489,7 @@ I wzięli Jonasza, i wrzucili go w morze, a ono przestało się srożyć.
 Ogarnęła wtedy tych ludzi bojaźń przed Panem. Złożyli Panu ofiarę i uczynili śluby.
 
 [Jonasz 2](https://biblia.deon.pl/rozdzial.php?id=796)  
-Pan zesłał wielką rybę1, aby połknęła Jonasza.
+Pan zesłał wielką rybę, aby połknęła Jonasza.
 I był Jonasz we wnętrznościach ryby trzy dni i trzy noce.
 Z wnętrzności ryby modlił się Jonasz do swego Pana Boga. (...)
 Pan nakazał rybie i wyrzuciła Jonasza na ląd.
@@ -506,7 +504,9 @@ I uwierzyli mieszkańcy Niniwy Bogu, ogłosili post i oblekli się w wory od naj
 
 ## Powołanie Abrahama
 
-[Rodzaju 12,1-4](https://biblia.deon.pl/rozdzial.php?id=12) **Abram wyrusza do Kanaanu**  
+![Powołanie Abrahama](/assets/img/Abraham.jpg)
+
+[Rodzaju 12,1-4](https://biblia.deon.pl/rozdzial.php?id=12)  
 Pan rzekł do Abrama:  
 «Wyjdź z twojej ziemi rodzinnej i z domu twego ojca do kraju, który ci ukażę.  
 Uczynię bowiem z ciebie wielki naród, będę ci [błogosławił](./eulogia.md) i twoje imię rozsławię:
@@ -518,6 +518,8 @@ Abram udał się w drogę, jak mu Pan rozkazał, a z nim poszedł i Lot.
 Abram miał siedemdziesiąt pięć lat, gdy wyszedł z Charanu. (...)
 
 ## Powołanie Jozuego
+
+![Powołanie Jozuego](/assets/img/Jozue.jpg)
 
 [Jozuego 1,1-9](https://biblia.deon.pl/rozdzial.php?id=1113)  
 Po śmierci Mojżesza, sługi Pana, rzekł Pan do Jozuego, syna Nuna, pomocnika Mojżesza:  
@@ -539,6 +541,8 @@ Czyż ci nie rozkazałem: Bądź mężny i mocny?
 Nie bój się i nie lękaj, ponieważ z tobą jest Pan, Bóg twój, wszędzie, gdziekolwiek pójdziesz»
 
 ## Powołanie Samuela
+
+![Powołanie Samuela](/assets/img/Samuel.jpg)
 
 [1 Samuela 3,1-19](https://biblia.deon.pl/rozdzial.php?id=1184)  
 Młody Samuel usługiwał Panu pod okiem Helego. (...)
@@ -573,6 +577,8 @@ Powiedział Pan do Samuela:
 Samuel dorastał, a Pan był z nim. Nie pozwolił upaść żadnemu jego słowu na ziemię.
 
 ## Powołanie Noego
+
+![Powołanie Noego](/assets/img/Noe.jpg)
 
 [Rodzaju 6,9-22](https://biblia.deon.pl/rozdzial.php?id=6)  
 Noe, człowiek prawy, wyróżniał się nieskazitelnością wśród współczesnych sobie ludzi; w przyjaźni z Bogiem żył Noe. (...)

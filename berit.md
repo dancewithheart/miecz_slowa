@@ -2,6 +2,8 @@
 
 ## Adam i Ewa
 
+![Adam i Ewa](/assets/img/Adam_Ewa.jpg)
+
 [Rodzaju 1,24-28](https://biblia.deon.pl/rozdzial.php?id=1#W24)  
 Potem Bóg rzekł:  
 «Niechaj ziemia wyda istoty żywe różnego rodzaju:
@@ -65,6 +67,8 @@ Pan Bóg sporządził dla mężczyzny i dla jego żony odzienie ze skór i przyo
 
 ## Noe
 
+![Noe](/assets/img/Noe.jpg)
+
 [Rodzaju 9,1-7](https://biblia.deon.pl/rozdzial.php?id=9)  
 Po czym Bóg [pobłogosławił](/eulogia.md) Noego i jego synów, mówiąc do nich:  
 «Bądźcie płodni i mnóżcie się, abyście zaludnili ziemię.
@@ -100,7 +104,9 @@ które jest na ziemi».
 Rzekł Bóg do Noego:  
 «To jest znak przymierza, które zawarłem między Mną a wszystkimi istotami, jakie są na ziemi».
 
-## Abraham
+## Abram (Abraham)
+
+![Abraham](/assets/img/Abraham.jpg)
 
 [Rodzaju 12,1-7](https://biblia.deon.pl/rozdzial.php?id=12) **Abram wyrusza do Kanaanu**  
 Pan rzekł do Abrama:  
@@ -238,6 +244,8 @@ dlatego że usłuchałeś mego rozkazu».
 
 ## Mojżesz
 
+![Mojżesz](/assets/img/Mojzesz.jpg)
+
 [Wyjścia 19,3-25](https://biblia.deon.pl/rozdzial.php?id=69) - [Wyjścia 20,1-24](https://biblia.deon.pl/rozdzial.php?id=70)  
 Mojżesz wstąpił wtedy do Boga, a Pan zawołał na niego z góry i powiedział:  
 «Tak powiesz domowi Jakuba i to oznajmisz Izraelitom:  
@@ -361,6 +369,8 @@ Potem jedli i pili.
 
 ## Dawid
 
+![Dawid](/assets/img/Dawid.jpg)
+
 [2 Samuela 7,8-16](https://biblia.deon.pl/rozdzial.php?id=1214)  
 Przemówisz do sługi mojego, Dawida:  
 To mówi Pan Zastępów:  
@@ -386,7 +396,9 @@ Twój tron będzie utwierdzony na wieki».
 
 ## Jozue
 
-[Jozuego 24,1-27]()  
+![Jozue](/assets/img/Jozue.jpg)
+
+[Jozuego 24,1-27](https://biblia.deon.pl/rozdzial.php?id=1136)  
 Jozue zgromadził w Sychem wszystkie pokolenia Izraela.
 Wezwał też starszych Izraela, jego książąt, sędziów i zwierzchników, którzy się stawili przed Bogiem.
 Jozue przemówił wtedy do całego narodu:  
@@ -439,9 +451,91 @@ które Pan mówił do nas. Będzie on świadkiem przeciw wam, abyście się nie 
 
 ## Salomon
 
-[1 Królewska 8](https://biblia.deon.pl/rozdzial.php?id=1237&werset=1#W1)
+![Salomon](/assets/img/Salomon.jpg)
+
+[1 Królewska 8,20-21](https://biblia.deon.pl/rozdzial.php?id=1237&werset=20#W20)  
+Wypełnił Pan właśnie to, co obiecał, bo nastałem po moim ojcu, Dawidzie,
+i zasiadłem na tronie izraelskim, jak zapowiedział Pan,
+oraz zbudowałem dom dla Imienia Pana, Boga Izraela.
+A w nim urządziłem miejsce dla Arki, w której jest Przymierze Pana,
+zawarte z naszymi przodkami, gdy ich wyprowadził z ziemi egipskiej.
+
+[1 Królewska 8,27-30](https://biblia.deon.pl/rozdzial.php?id=1237&werset=27#W27)  
+Czy jednak naprawdę zamieszka Bóg na ziemi?
+Przecież niebo i niebiosa najwyższe nie mogą Cię objąć,
+a tym mniej ta świątynia, którą zbudowałem.
+Zważ więc na modlitwę Twego sługi i jego błaganie, o Panie, Boże mój,
+i wysłuchaj to wołanie i tę modlitwę,
+w której dziś Twój sługa stara się ubłagać Cię o to,
+aby w nocy i w dzień Twoje oczy patrzyły na tę świątynię.
+Jest to miejsce, o którym powiedziałeś: "Tam będzie moje Imię" - tak,
+aby wysłuchać modlitwę, którą zanosi Twój sługa na tym miejscu.
+Dlatego wysłuchaj błaganie Twego sługi i Twego ludu, Izraela,
+ilekroć modlić się będzie na tym miejscu.
+Ty zaś wysłuchaj w miejscu Twego przebywania - w niebie.
+Nie tylko wysłuchaj, ale też i przebacz!
+
+[1 Królewska 8,33-34](https://biblia.deon.pl/rozdzial.php?id=1237&werset=33#W33)  
+Kiedy Twój lud spotka klęska od nieprzyjaciela za to, że zgrzeszył przeciw Tobie,
+a oni się nawrócą do Ciebie i będą wzywać Twego imienia,
+modlić się do Ciebie i błagać w tej świątyni,
+wtedy Ty wysłuchaj w niebiosach i przebacz grzech Twego ludu, Izraela,
+i przyprowadź ich z powrotem do kraju, który dałeś ich przodkom.
+
+[1 Królewska 9,3-5](https://biblia.deon.pl/rozdzial.php?id=1238&werset=3#W3)  
+«Wysłuchałem twoją modlitwę i twoje błaganie, które zanosiłeś przede Mną.
+Uświęciłem tę świątynię, którą zbudowałeś dla umieszczenia w niej na wieki mego Imienia.
+Po wszystkie dni będą na nią skierowane moje oczy i moje serce.
+Ty zaś, jeżeli będziesz postępował wobec Mnie,
+jak postępował twój ojciec, Dawid, w szczerości serca i uczciwości
+wypełniając wszystko, do czego cię zobowiązałem,
+jeżeli będziesz strzegł moich praw i nakazów,
+to na wieki utrwalę tron twego królowania nad Izraelem,
+jak przyrzekłem niegdyś twemu ojcu, Dawidowi, mówiąc:
+"Nie będzie ci odjęty potomek na tronie Izraela"
+
+[1 Królewska 8,56-61](https://biblia.deon.pl/rozdzial.php?id=1237&werset=56#W56)  
+«Niech będzie błogosławiony Pan, który dał pokój swemu ludowi, Izraelowi,
+według tego wszystkiego, co zapowiedział;
+za to, że nie uchybił ani jednemu wypowiedzianemu słowu
+z wszelkiej obietnicy pomyślności, danej przez swego sługę Mojżesza.
+ Niech będzie z nami Pan, nasz Bóg, jak był z naszymi przodkami!
+Niech nas nie opuszcza i nie odrzuca nas,
+ale nakłoni do siebie nasze serca, abyśmy chodzili Jego drogami,
+strzegąc Jego poleceń, praw i nakazów, do których zobowiązał naszych przodków.
+Niech te moje słowa, w których błagałem Pana o zmiłowanie,
+docierają do Pana, Boga naszego, czy to w dzień, czy to w nocy,
+aby wymierzał sprawiedliwość swemu słudze i swemu ludowi, Izraelowi,
+według potrzeby każdego dnia.  
+Niech wszystkie ludy świata dowiedzą się, że jedynie Pan jest Bogiem,
+a innego nie ma. Niech więc serce wasze będzie szczere wobec Pana, Boga naszego, 
+abyście postępowali według Jego praw i przestrzegali Jego nakazów,
+jak jest w dniu dzisiejszym».
+
+
+[1 Królewska 8,63-66](https://biblia.deon.pl/rozdzial.php?id=1237&werset=63#W63)  
+Wtedy Salomon złożył ofiarę biesiadną, w której ofiarował ku czci Pana
+dwadzieścia dwa tysiące wołów i sto dwadzieścia tysięcy owiec.
+Tym samym król i wszyscy Izraelici poświęcili dom Panu.
+
+Wtedy Salomon, a z nim wielkie zgromadzenie całego Izraela (...),
+obchodził uroczyste święto przed Panem, Bogiem naszym12, przez (...) czternaście dni.
+Odprawił lud, który błogosławiąc królowi,
+rozszedł się do swoich namiotów radośnie
+i z wdzięcznym sercem za te wszystkie dobrodziejstwa, które Pan.
+
+[1 Królewska 9,6-9](https://biblia.deon.pl/rozdzial.php?id=1238&werset=5#W5)  
+Ale jeżeli zupełnie odwrócicie się ode Mnie wy i wasi synowie
+i nie będziecie przestrzegali moich poleceń i praw, które wam dałem,
+oraz zechcecie pójść i służyć obcym bogom i będziecie im oddawać pokłon,
+to wytępię Izraela z powierzchni ziemi, którą im dałem,
+a świątynię, którą poświęciłem memu Imieniu, odtrącę od mego oblicza (...)
+Dlatego że opuścili Jahwe, Boga swego, który wyprowadził ich przodków z ziemi egipskiej,
+a upodobali sobie innych bogów oraz im oddawali pokłon i służyli (...)
 
 ## Jozjasz
+
+![Jozjasz](/assets/img/Jozjasz.jpg)
 
 [2 Królewska 23,1-3](https://biblia.deon.pl/rozdzial.php?id=1254&werset=1#W1)  
 Wtedy król polecił przez posłów, by zebrała się koło niego cała starszyzna Judy i Jerozolimy.
@@ -453,6 +547,8 @@ Następnie król stanął przy kolumnie i zawarł [przymierze](/berit.md) przed 
 że w czyn zamienią słowa tego przymierza, spisane w tejże księdze. I cały lud przystąpił do przymierza.
 
 ## Jezus Chrystus
+
+![Jezus](/assets/img/Jezus.jpg)
 
 [Jeremiasz 31,31-34](https://biblia.deon.pl/rozdzial.php?id=672&werset=31#W31)  
 Oto nadchodzą dni - wyrocznia Pana -  
@@ -474,7 +570,7 @@ I nie będą się musieli wzajemnie pouczać
 jeden mówiąc do drugiego:  
 "Poznajcie Pana!"  
 Wszyscy bowiem od najmniejszego do największego  
-poznają Mnie19 - wyrocznia Pana,  
+poznają Mnie - wyrocznia Pana,  
 ponieważ odpuszczę im występki,  
 a o grzechach ich nie będę już wspominał».  
 

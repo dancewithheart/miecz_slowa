@@ -34,7 +34,7 @@ Odnawia się ona co rano:
 ogromna Twa wierność.  
 
 [Izajasz 61,1-3](https://biblia.deon.pl/rozdzial.php?id=533)  
-Posłał mnie, by głosić [dobrą nowinę](/euaggelion.md) ubogim,  
+[Posłał](/kaleo.md) mnie, by głosić [dobrą nowinę](/euaggelion.md) ubogim,  
 by opatrywać rany serc złamanych,  
 by zapowiadać [wyzwolenie](/eleutheros.md) jeńcom  
 i więźniom swobodę;  

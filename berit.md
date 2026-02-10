@@ -453,7 +453,85 @@ które Pan mówił do nas. Będzie on świadkiem przeciw wam, abyście się nie 
 
 ![Salomon](/assets/img/Salomon.jpg)
 
-[1 Królewska 8](https://biblia.deon.pl/rozdzial.php?id=1237&werset=1#W1)
+[1 Królewska 8,20-21](https://biblia.deon.pl/rozdzial.php?id=1237&werset=20#W20)  
+Wypełnił Pan właśnie to, co obiecał, bo nastałem po moim ojcu, Dawidzie,
+i zasiadłem na tronie izraelskim, jak zapowiedział Pan,
+oraz zbudowałem dom dla Imienia Pana, Boga Izraela.
+A w nim urządziłem miejsce dla Arki, w której jest Przymierze Pana,
+zawarte z naszymi przodkami, gdy ich wyprowadził z ziemi egipskiej.
+
+[1 Królewska 8,27-30](https://biblia.deon.pl/rozdzial.php?id=1237&werset=27#W27)  
+Czy jednak naprawdę zamieszka Bóg na ziemi?
+Przecież niebo i niebiosa najwyższe nie mogą Cię objąć,
+a tym mniej ta świątynia, którą zbudowałem.
+Zważ więc na modlitwę Twego sługi i jego błaganie, o Panie, Boże mój,
+i wysłuchaj to wołanie i tę modlitwę,
+w której dziś Twój sługa stara się ubłagać Cię o to,
+aby w nocy i w dzień Twoje oczy patrzyły na tę świątynię.
+Jest to miejsce, o którym powiedziałeś: "Tam będzie moje Imię" - tak,
+aby wysłuchać modlitwę, którą zanosi Twój sługa na tym miejscu.
+Dlatego wysłuchaj błaganie Twego sługi i Twego ludu, Izraela,
+ilekroć modlić się będzie na tym miejscu.
+Ty zaś wysłuchaj w miejscu Twego przebywania - w niebie.
+Nie tylko wysłuchaj, ale też i przebacz!
+
+[1 Królewska 8,33-34](https://biblia.deon.pl/rozdzial.php?id=1237&werset=33#W33)  
+Kiedy Twój lud spotka klęska od nieprzyjaciela za to, że zgrzeszył przeciw Tobie,
+a oni się nawrócą do Ciebie i będą wzywać Twego imienia,
+modlić się do Ciebie i błagać w tej świątyni,
+wtedy Ty wysłuchaj w niebiosach i przebacz grzech Twego ludu, Izraela,
+i przyprowadź ich z powrotem do kraju, który dałeś ich przodkom.
+
+[1 Królewska 9,3-5](https://biblia.deon.pl/rozdzial.php?id=1238&werset=3#W3)  
+«Wysłuchałem twoją modlitwę i twoje błaganie, które zanosiłeś przede Mną.
+Uświęciłem tę świątynię, którą zbudowałeś dla umieszczenia w niej na wieki mego Imienia.
+Po wszystkie dni będą na nią skierowane moje oczy i moje serce.
+Ty zaś, jeżeli będziesz postępował wobec Mnie,
+jak postępował twój ojciec, Dawid, w szczerości serca i uczciwości
+wypełniając wszystko, do czego cię zobowiązałem,
+jeżeli będziesz strzegł moich praw i nakazów,
+to na wieki utrwalę tron twego królowania nad Izraelem,
+jak przyrzekłem niegdyś twemu ojcu, Dawidowi, mówiąc:
+"Nie będzie ci odjęty potomek na tronie Izraela"
+
+[1 Królewska 8,56-61](https://biblia.deon.pl/rozdzial.php?id=1237&werset=56#W56)  
+«Niech będzie błogosławiony Pan, który dał pokój swemu ludowi, Izraelowi,
+według tego wszystkiego, co zapowiedział;
+za to, że nie uchybił ani jednemu wypowiedzianemu słowu
+z wszelkiej obietnicy pomyślności, danej przez swego sługę Mojżesza.
+ Niech będzie z nami Pan, nasz Bóg, jak był z naszymi przodkami!
+Niech nas nie opuszcza i nie odrzuca nas,
+ale nakłoni do siebie nasze serca, abyśmy chodzili Jego drogami,
+strzegąc Jego poleceń, praw i nakazów, do których zobowiązał naszych przodków.
+Niech te moje słowa, w których błagałem Pana o zmiłowanie,
+docierają do Pana, Boga naszego, czy to w dzień, czy to w nocy,
+aby wymierzał sprawiedliwość swemu słudze i swemu ludowi, Izraelowi,
+według potrzeby każdego dnia.  
+Niech wszystkie ludy świata dowiedzą się, że jedynie Pan jest Bogiem,
+a innego nie ma. Niech więc serce wasze będzie szczere wobec Pana, Boga naszego, 
+abyście postępowali według Jego praw i przestrzegali Jego nakazów,
+jak jest w dniu dzisiejszym».
+
+
+[1 Królewska 8,63-66](https://biblia.deon.pl/rozdzial.php?id=1237&werset=63#W63)  
+Wtedy Salomon złożył ofiarę biesiadną, w której ofiarował ku czci Pana
+dwadzieścia dwa tysiące wołów i sto dwadzieścia tysięcy owiec.
+Tym samym król i wszyscy Izraelici poświęcili dom Panu.
+
+Wtedy Salomon, a z nim wielkie zgromadzenie całego Izraela (...),
+obchodził uroczyste święto przed Panem, Bogiem naszym12, przez (...) czternaście dni.
+Odprawił lud, który błogosławiąc królowi,
+rozszedł się do swoich namiotów radośnie
+i z wdzięcznym sercem za te wszystkie dobrodziejstwa, które Pan.
+
+[1 Królewska 9,6-9](https://biblia.deon.pl/rozdzial.php?id=1238&werset=5#W5)  
+Ale jeżeli zupełnie odwrócicie się ode Mnie wy i wasi synowie
+i nie będziecie przestrzegali moich poleceń i praw, które wam dałem,
+oraz zechcecie pójść i służyć obcym bogom i będziecie im oddawać pokłon,
+to wytępię Izraela z powierzchni ziemi, którą im dałem,
+a świątynię, którą poświęciłem memu Imieniu, odtrącę od mego oblicza (...)
+Dlatego że opuścili Jahwe, Boga swego, który wyprowadził ich przodków z ziemi egipskiej,
+a upodobali sobie innych bogów oraz im oddawali pokłon i służyli (...)
 
 ## Jozjasz
 

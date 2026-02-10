@@ -455,6 +455,8 @@ które Pan mówił do nas. Będzie on świadkiem przeciw wam, abyście się nie 
 
 ## Jozjasz
 
+![Jozjasz](/assets/img/Jozjasz.jpg)
+
 [2 Królewska 23,1-3](https://biblia.deon.pl/rozdzial.php?id=1254&werset=1#W1)  
 Wtedy król polecił przez posłów, by zebrała się koło niego cała starszyzna Judy i Jerozolimy.
 I wszedł król do świątyni Pańskiej, a wraz z nim wszyscy ludzie z Judy i wszyscy mieszkańcy Jerozolimy,

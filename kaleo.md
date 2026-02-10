@@ -536,6 +536,8 @@ Nie bój się i nie lękaj, ponieważ z tobą jest Pan, Bóg twój, wszędzie, g
 
 ## Powołanie Samuela
 
+![Powołanie Samuela](/assets/img/Samuel.jpg)
+
 [1 Samuela 3,1-19](https://biblia.deon.pl/rozdzial.php?id=1184)  
 Młody Samuel usługiwał Panu pod okiem Helego. (...)
 Pewnego dnia Heli spał w zwykłym miejscu. Oczy jego zaczęły już słabnąć i nie mógł widzieć.

@@ -96,15 +96,17 @@ Albowiem w Chrystusie Jezusie ani obrzezanie, ani jego brak nie mają żadnego z
 W niej bowiem objawia się [sprawiedliwość](/dikaiosyne.md) Boża, która od [wiary](/pistis.md) wychodzi i ku [wierze](/pistis.md) prowadzi,
 jak jest napisane: a [sprawiedliwy](/dikaiosyne.md) z wiary [żyć](/zoen.md) będzie.
 
-[Ew. Marka 11,23-24](https://biblia.deon.pl/rozdzial.php?id=310#W23)  
+[Marek 11,23-24](https://biblia.deon.pl/rozdzial.php?id=310#W23)  
 Zaprawdę, powiadam wam: Kto powie tej górze: "Podnieś się i rzuć się w morze",  
 a nie wątpi w duszy, lecz [wierzy](/doxa.md), że spełni się to, co mówi, tak mu się stanie.  
 Dlatego powiadam wam: Wszystko, o co w [modlitwie](/proseuche.md) prosicie, stanie się wam, tylko [wierzcie](/pistis.md), że otrzymacie.
 
+![Kto powie do gory rzuc sie w morze](/assets/img/Mk11_23_gora_w_morze.jpg)
+
 [Rzymian 10,10](https://biblia.deon.pl/rozdzial.php?id=279#W10)  
 Bo [sercem](/cardia.md) przyjęta [wiara](/pistis.md) prowadzi do [usprawiedliwienia](/dikaiosyne.md), a wyznawanie jej ustami - do [zbawienia](/sozo.md)
 
-[Ew. Marka 11,23-24](https://biblia.deon.pl/rozdzial.php?id=310#W23)  
+[Marek 11,23-24](https://biblia.deon.pl/rozdzial.php?id=310#W23)  
 Kto [powie](/rhema.md) tej górze: "Podnieś się i rzuć się w morze",  
 a nie wątpi w duszy, lecz [wierzy](/pistis.md), że spełni się to, co mówi, tak mu się stanie.  
 Wszystko, o co w [modlitwie](/proseuche.md) prosicie, stanie się wam, tylko [wierzcie](pistis.md), że otrzymacie.
@@ -225,16 +227,17 @@ i w Samarii, i aż po krańce ziemi.
 [Rzymian 8,18](https://biblia.deon.pl/rozdzial.php?id=277)  
 Cierpień teraźniejszych nie można stawiać na równi z [chwałą](/doxa.md), która ma się w nas objawić
 
-[Jan 1,14](https://biblia.deon.pl/rozdzial.php?id=340)  
+[Jan 1,14-16](https://biblia.deon.pl/rozdzial.php?id=340)  
 A [Słowo](/rhema.md) stało się ciałem i zamieszkało wśród nas.
-I oglądaliśmy Jego [chwałę](/doxa.md), chwałę, jaką Jednorodzony otrzymuje od Ojca,
-pełen [łaski](/charis.md) i [prawdy](/aletheia.md).
+I oglądaliśmy Jego chwałę, chwałę, jaką Jednorodzony otrzymuje od Ojca,
+pełen [łaski](/charis.md) i [prawdy](/aletheia.md). (...)  
+Z Jego pełności wszyscyśmy otrzymali - łaskę po łasce.
 
 [2 Koryntian 3,18](https://biblia.deon.pl/rozdzial.php?id=997)  
 My wszyscy z odsłoniętą twarzą wpatrujemy się w [jasność (chwałę)](/doxa.md) Pańską jakby w zwierciadle;
 za sprawą Ducha Pańskiego, coraz bardziej jaśniejąc, upodabniamy się do Jego obrazu.
 
-[Ew Jana 11,40](https://biblia.deon.pl/rozdzial.php?id=350)  
+[Jana 11,40](https://biblia.deon.pl/rozdzial.php?id=350)  
 Jezus rzekł do niej: «Czyż nie powiedziałem ci, że jeśli uwierzysz, ujrzysz [chwałę](/doxa.md) Bożą?»
 
 # [błogosławieństwo](/eulogia.md)
@@ -292,9 +295,10 @@ prorokiem dla narodów ustanowiłem cię.
 
 # [przymierze](/berit.md)
 
+[Rodzaju 17,1-16](https://biblia.deon.pl/rozdzial.php?id=17)
+
 ![Abraham](/assets/img/Abraham.jpg)
 
-[Rodzaju 17,1-16](https://biblia.deon.pl/rozdzial.php?id=17)  
 A gdy Abram miał dziewięćdziesiąt dziewięć lat, ukazał mu się Pan i rzekł do niego:  
 «Jam jest Bóg Wszechmogący. Służ Mi i bądź nieskazitelny,
 chcę bowiem zawrzeć moje przymierze pomiędzy Mną a tobą i dać ci niezmiernie liczne potomstwo».  
@@ -322,9 +326,10 @@ Nieobrzezany, czyli mężczyzna, któremu nie obrzezano ciała jego napletka,
 taki człowiek niechaj będzie usunięty ze społeczności twojej;
 zerwał on bowiem [przymierze](/berit.md) ze Mną».
 
+[Wyjścia 19,3-25](https://biblia.deon.pl/rozdzial.php?id=69) - [Wyjścia 20,1-24](https://biblia.deon.pl/rozdzial.php?id=70)
+
 ![Mojżesz](/assets/img/Mojzesz.jpg)
 
-[Wyjścia 19,3-25](https://biblia.deon.pl/rozdzial.php?id=69) - [Wyjścia 20,1-24](https://biblia.deon.pl/rozdzial.php?id=70)  
 Mojżesz wstąpił wtedy do Boga, a Pan zawołał na niego z góry i powiedział:  
 «Tak powiesz domowi Jakuba i to oznajmisz Izraelitom:  
 Wyście widzieli, co uczyniłem Egiptowi, jak niosłem was na skrzydłach orlich i przywiodłem was do Mnie.
@@ -373,7 +378,10 @@ Uczynisz Mi ołtarz z ziemi i będziesz składał na nim twoje całopalenia,
 twoje ofiary biesiadne z twojej trzody i z bydła na każdym miejscu,
 gdzie każę ci wspominać moje imię. Przyjdę do ciebie i będę ci [błogosławił](/eulogia.md). (...)
 
-[Mateusz 26,26-28](https://biblia.deon.pl/rozdzial.php?id=362), [Marek 14,22-25](https://biblia.deon.pl/rozdzial.php?id=313&werset=22#W22), [Łukasz 22,19](https://biblia.deon.pl/rozdzial.php?id=337&werset=19#W19), [1 Koryntian 11,23-26](https://biblia.deon.pl/rozdzial.php?id=296&werset=23#W23)  
+[Mateusz 26,26-28](https://biblia.deon.pl/rozdzial.php?id=362), [Marek 14,22-25](https://biblia.deon.pl/rozdzial.php?id=313&werset=22#W22), [Łukasz 22,19](https://biblia.deon.pl/rozdzial.php?id=337&werset=19#W19), [1 Koryntian 11,23-26](https://biblia.deon.pl/rozdzial.php?id=296&werset=23#W23)
+
+![Jezus](/assets/img/Jezus.jpg)
+
 A gdy oni jedli, Jezus wziął chleb i odmówiwszy [błogosławieństwo](/eulogia.md), połamał i dał uczniom, mówiąc:  
 «Bierzcie i jedzcie, to jest Ciało moje».  
 Następnie wziął kielich i odmówiwszy [dziękczynienie](/eucharisteo.md), dał im, mówiąc:  

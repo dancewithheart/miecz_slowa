@@ -10,7 +10,7 @@ Wiara rodzi się z tego, co się słyszy, tym zaś, co się słyszy, jest [słow
 W niej bowiem objawia się [sprawiedliwość](/dikaiosyne.md) Boża, która od wiary wychodzi i ku wierze prowadzi,
 jak jest napisane: a [sprawiedliwy](/dikaiosyne.md) z wiary [żyć](/zoen.md) będzie.
 
-[Ew. Marka 11,22](https://biblia.deon.pl/rozdzial.php?id=310#W22)  
+[Marek 11,22](https://biblia.deon.pl/rozdzial.php?id=310#W22)  
 Miejcie wiarę Boga  
 
 [Hebrajczyków 12,2](https://biblia.deon.pl/rozdzial.php?id=376#W2)  
@@ -21,21 +21,23 @@ Wszystko bowiem, co z Boga zrodzone, zwycięża świat;
 tym właśnie zwycięstwem, które zwyciężyło świat, jest nasza wiara.  
 A kto zwycięża świat, jeśli nie ten, kto wierzy, że Jezus jest Synem Bożym?  
 
-[Ew Jana 11,40](https://biblia.deon.pl/rozdzial.php?id=350)  
+[Jan 11,40](https://biblia.deon.pl/rozdzial.php?id=350)  
 Jezus rzekł do niej: «Czyż nie powiedziałem ci, że jeśli uwierzysz, ujrzysz [chwałę](/doxa.md) Bożą?»  
 
-[Ew. Marka 11,23-24](https://biblia.deon.pl/rozdzial.php?id=310#W23)  
+[Marek 11,23-24](https://biblia.deon.pl/rozdzial.php?id=310#W23)  
 Zaprawdę, powiadam wam: Kto powie tej górze: "Podnieś się i rzuć się w morze",  
 a nie wątpi w duszy, lecz wierzy, że spełni się to, co mówi, tak mu się stanie.  
 Dlatego powiadam wam: Wszystko, o co w [modlitwie](/proseuche.md) prosicie, stanie się wam, tylko wierzcie, że otrzymacie.  
 
-[Ew Mateusza 21,22](https://biblia.deon.pl/rozdzial.php?id=264#W22)  
+![Kto powie do gory rzuc sie w morze](/assets/img/Mk11_23_gora_w_morze.jpg)
+
+[Mateusz 21,22](https://biblia.deon.pl/rozdzial.php?id=264#W22)  
 Otrzymacie wszystko, o co na [modlitwie](/proseuche.md) z wiarą prosić będziecie.  
 
-[Ew Marek 9,23](https://biblia.deon.pl/rozdzial.php?id=308#W23)  
+[Marek 9,23](https://biblia.deon.pl/rozdzial.php?id=308#W23)  
 Wszystko możliwe jest dla tego, kto wierzy  
 
-[Ew Łukasz 1,37](https://biblia.deon.pl/rozdzial.php?id=316#W37)  
+[Łukasz 1,37](https://biblia.deon.pl/rozdzial.php?id=316#W37)  
 Dla Boga bowiem nie ma nic niemożliwego  
 
 [Rzymian 10,9](https://biblia.deon.pl/rozdzial.php?id=279#W9)  
@@ -54,14 +56,12 @@ zachowajmy [pokój](/eirene.md) z Bogiem przez Pana naszego Jezusa Chrystusa,
 dzięki któremu uzyskaliśmy przez wiarę dostęp do tej [łaski](/charis.md),
 w której trwamy i chlubimy się [nadzieją](/elpis.md) [chwały](/doxa.md) Bożej.
 
-[Ew Mateusz 17,20](https://biblia.deon.pl/rozdzial.php?id=260#W20)  
+[Mateusz 17,20](https://biblia.deon.pl/rozdzial.php?id=260#W20)  
 Jeśli będziecie mieć wiarę jak ziarnko gorczycy, powiecie tej górze: "Przesuń się stąd tam!", a przesunie się. I nic niemożliwego nie będzie dla was.  
 
 [1 List Jakuba 1,6-7](https://biblia.deon.pl/rozdzial.php?id=1044#W6)  
 Niech zaś prosi z wiarą, a nie wątpi o niczym! Kto bowiem żywi wątpliwości, podobny jest do fali morskiej wzbudzonej wiatrem i miotanej to tu, to tam.  
-Człowiek ten niech nie myśli, że otrzyma cokolwiek od Pana, bo jest mężem chwiejnym, niestałym we wszystkich swych drogach.  
-
-![Kto powie do gory rzuc sie w morze](/assets/img/Mk11_23_gora_w_morze.jpg)
+Człowiek ten niech nie myśli, że otrzyma cokolwiek od Pana, bo jest mężem chwiejnym, niestałym we wszystkich swych drogach.
 
 Hebrajski: /אָמַן/ aman [539 biblehub](https://biblehub.com/hebrew/539.htm) [108 wystąpień](https://biblehub.com/hebrew/strongs_539.htm)  
 // emunah [530 biblehub](https://biblehub.com/hebrew/530.htm) [49 wystąpień](https://biblehub.com/hebrew/strongs_530.htm)  

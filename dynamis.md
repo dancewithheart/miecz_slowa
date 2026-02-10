@@ -34,7 +34,7 @@ Niech [moc Jego](/dynamis.md) [chwały](/doxa.md) w pełni was umacnia
 do [okazywania] wszelkiego rodzaju [cierpliwości](/makrothymia.md) i stałości.
 Z [radością](/chara.md) [dziękujcie](/eucharisteo.md) Ojcu,
 który was uzdolnił do uczestnictwa w dziale [świętych](/hagios.md) w światłości.
-On [uwolnił](/eleutheros.md) nas spod władzy ciemności i przeniósł do królestwa swego umiłowanego Syna,
+On [uwolnił](/eleutheros.md) nas spod władzy ciemności i przeniósł do [królestwa](/basileia.md) swego umiłowanego Syna,
 w którym mamy [odkupienie](/eleutheros.md) - odpuszczenie grzechów.  
 
 [Rzymian 15,13](https://biblia.deon.pl/rozdzial.php?id=284)  

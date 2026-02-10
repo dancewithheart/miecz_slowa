@@ -19,7 +19,7 @@ Nie bądźcie podobni do nich! Albowiem wie Ojciec wasz, czego wam potrzeba, wpi
 Wy zatem tak się módlcie:  
 Ojcze nasz, który jesteś w niebie,  
 niech się święci imię Twoje!  
-Niech przyjdzie królestwo Twoje; niech Twoja wola spełnia się na ziemi, tak jak i w niebie.  
+Niech przyjdzie [królestwo Twoje](/basileia.md); niech Twoja wola spełnia się na ziemi, tak jak i w niebie.  
 Chleba naszego powszedniego daj nam dzisiaj;  
 i przebacz nam nasze winy, jak i my przebaczamy tym, którzy przeciw nam zawinili;  
 i nie dopuść, abyśmy ulegli pokusie, ale nas zachowaj od złego!  

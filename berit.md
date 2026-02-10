@@ -449,6 +449,8 @@ które Pan mówił do nas. Będzie on świadkiem przeciw wam, abyście się nie 
 
 ## Salomon
 
+![Salomon](/assets/img/Salomon.jpg)
+
 [1 Królewska 8](https://biblia.deon.pl/rozdzial.php?id=1237&werset=1#W1)
 
 ## Jozjasz

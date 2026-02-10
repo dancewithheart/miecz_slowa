@@ -504,6 +504,8 @@ I uwierzyli mieszkańcy Niniwy Bogu, ogłosili post i oblekli się w wory od naj
 
 ## Powołanie Abrahama
 
+![Powołanie Abrahama](/assets/img/Abraham.jpg)
+
 [Rodzaju 12,1-4](https://biblia.deon.pl/rozdzial.php?id=12)  
 Pan rzekł do Abrama:  
 «Wyjdź z twojej ziemi rodzinnej i z domu twego ojca do kraju, który ci ukażę.  

@@ -104,6 +104,8 @@ Rzekł Bóg do Noego:
 
 ## Abraham
 
+![Powołanie Abrahama](/assets/img/Abraham.jpg)
+
 [Rodzaju 12,1-7](https://biblia.deon.pl/rozdzial.php?id=12) **Abram wyrusza do Kanaanu**  
 Pan rzekł do Abrama:  
 «Wyjdź z twojej ziemi rodzinnej i z domu twego ojca do kraju, który ci ukażę.  

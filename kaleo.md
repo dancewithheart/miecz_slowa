@@ -1,13 +1,5 @@
 # powołanie
 
-## etapy powołania
-
-1. teofania (Bóg się objawia)
-2. misja powołania (jej cel)
-3. wątpliwości
-4. Bóg uspokaja, oczyszcza, zaopatrza
-5. posłanie na misje
-
 ## Powołanie Piotra
 
 [Łukasz 5,1-11](https://biblia.deon.pl/rozdzial.php?id=320&werset=1#W1), [Mk 1,16-20](https://biblia.deon.pl/rozdzial.php?id=267&werset=16#W16), [Mateusz 4,18-20](https://biblia.deon.pl/rozdzial.php?id=247&werset=18#W18), [Jan 1,40-42](https://biblia.deon.pl/rozdzial.php?id=340&werset=40#W40)

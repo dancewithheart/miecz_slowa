@@ -65,6 +65,8 @@ Pan Bóg sporządził dla mężczyzny i dla jego żony odzienie ze skór i przyo
 
 ## Noe
 
+![Noe](/assets/img/Noe.jpg)
+
 [Rodzaju 9,1-7](https://biblia.deon.pl/rozdzial.php?id=9)  
 Po czym Bóg [pobłogosławił](/eulogia.md) Noego i jego synów, mówiąc do nich:  
 «Bądźcie płodni i mnóżcie się, abyście zaludnili ziemię.
@@ -386,7 +388,7 @@ Twój tron będzie utwierdzony na wieki».
 
 ## Jozue
 
-[Jozuego 24,1-27]()  
+[Jozuego 24,1-27](https://biblia.deon.pl/rozdzial.php?id=1136)  
 Jozue zgromadził w Sychem wszystkie pokolenia Izraela.
 Wezwał też starszych Izraela, jego książąt, sędziów i zwierzchników, którzy się stawili przed Bogiem.
 Jozue przemówił wtedy do całego narodu:  

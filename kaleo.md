@@ -572,6 +572,8 @@ Samuel dorastał, a Pan był z nim. Nie pozwolił upaść żadnemu jego słowu n
 
 ## Powołanie Noego
 
+![Powołanie Noego](/assets/img/Noe.jpg)
+
 [Rodzaju 6,9-22](https://biblia.deon.pl/rozdzial.php?id=6)  
 Noe, człowiek prawy, wyróżniał się nieskazitelnością wśród współczesnych sobie ludzi; w przyjaźni z Bogiem żył Noe. (...)
 Gdy Bóg widział, iż ziemia jest skażona, że wszyscy ludzie postępują na ziemi niegodziwie, rzekł do Noego:  

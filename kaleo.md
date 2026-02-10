@@ -468,6 +468,8 @@ Jakiś czas spędził z uczniami w Damaszku i zaraz zaczął głosić w synagoga
 
 ## Powołanie Jonasza
 
+![Powołanie Jonasza](/assets/img/Jonasz.jpg)
+
 [Jonasz 1](https://biblia.deon.pl/rozdzial.php?id=795)  
 Pan skierował do Jonasza, syna Amittaja, te słowa:  
 «Wstań, idź do Niniwy - wielkiego miasta - i upomnij ją, albowiem nieprawość jej dotarła przed moje oblicze».

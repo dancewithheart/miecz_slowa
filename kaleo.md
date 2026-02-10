@@ -1,4 +1,4 @@
-# powołanie
+# powołanie, posłanie
 
 ## Powołanie Piotra
 
@@ -403,6 +403,8 @@ Wziął Mojżesz swą żonę i synów, wsadził ich na osła i powracał do ziem
 Wziął też Mojżesz ze sobą laskę Boga.
 
 ## Powołanie Pawła (Szawła z Tarsu)
+
+![Powołanie Pawła](/assets/img/Pawel.jpg)
 
 1. Szaweł prześladuje uczniów Jezusa
 

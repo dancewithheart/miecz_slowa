@@ -110,4 +110,8 @@ bo jak śmierć potężna jest miłość, a zazdrość jej nieprzejednana jak Sz
 Wody wielkie nie zdołają ugasić miłości, nie zatopią jej rzeki.
 Jeśliby kto oddał za miłość całe bogactwo swego domu, pogardzą nim tylko.
 
+[Syracha 1,22](https://biblia.deon.pl/rozdzial.php?id=591)  
+Niesłuszny gniew nie może być usprawiedliwiony,  
+przebranie miary w gniewie jest jego upadkiem.
+
 Greckie słowo: αγαπη (agape) [strong 26](https://biblia.oblubienica.eu/wystepowanie/strong/id/26)  

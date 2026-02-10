@@ -244,6 +244,8 @@ I rzekł [mi]:
 
 ## Powołanie Mojżesza
 
+![Powołanie Mojżesza](/assets/img/Mojzesz.jpg)
+
 1. Anioł Pański się pokazuje
 
 [Wyjścia 3,1-2](https://biblia.deon.pl/rozdzial.php?id=53)  

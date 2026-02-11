@@ -88,3 +88,5 @@ Kiedy tylko Eliasz go usłyszał,
 zasłoniwszy twarz płaszczem, wyszedł i stanął przy wejściu do groty.
 A wtedy rozległ się głos mówiący do niego:  
 «Co ty tu robisz, Eliaszu?»
+
+![Eliaszu łagodny powiew](/assets/img/Eliasz_lekki_powiew.jpg)

@@ -57,3 +57,9 @@ Tak mówcie i wy, gdy uczynicie wszystko, co wam polecono:
 "Słudzy nieużyteczni jesteśmy; wykonaliśmy to, co powinniśmy wykonać"».
 
 Greckie słowo: ταπεινοφροσύνη (tapeinophrosunē) [strong 5012](http://biblia.oblubienica.eu/wystepowanie/strong/id/5012)
+
+[1 Piotra 5,5-7](https://biblia.deon.pl/rozdzial.php?id=1053)  
+Wszyscy zaś wobec siebie wzajemnie przyobleczcie się w pokorę,  
+Bóg bowiem pysznym się sprzeciwia, a pokornym łaskę daje.  
+Upokórzcie się więc pod mocną ręką Boga, aby was wywyższył w stosownej chwili.  
+Wszystkie troski wasze przerzućcie na Niego, gdyż Jemu zależy na was.  

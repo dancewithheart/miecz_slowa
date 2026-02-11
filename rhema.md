@@ -1,6 +1,6 @@
 ## Słowo Boże
 
-[Hbr 4,12](https://biblia.deon.pl/rozdzial.php?id=368)  
+[Hebrajczyków 4,12](https://biblia.deon.pl/rozdzial.php?id=368)  
 Żywe bowiem jest słowo Boże, skuteczne i ostrzejsze niż wszelki miecz obosieczny, przenikające aż do rozdzielenia duszy i ducha, stawów i szpiku, zdolne osądzić pragnienia i myśli serca.
 
 [Izajasz 55,10-11](https://biblia.deon.pl/rozdzial.php?id=527)  
@@ -111,3 +111,12 @@ A Szymon odpowiedział:
 Skoro to uczynili, zagarnęli tak wielkie mnóstwo ryb, że sieci ich zaczynały się rwać.  
 
 ![Przypowieść o perle](/assets/img/Lk5_porwane_sieci.jpg)
+
+[Psalm 119,105](https://biblia.deon.pl/rozdzial.php?id=952&werset=105#W105)  
+Twoje słowo jest lampą dla moich stóp  
+i światłem na mojej ścieżce.
+
+[Jozuego 1,8](https://biblia.deon.pl/rozdzial.php?id=1113#W8)  
+Niech ta Księga Prawa będzie zawsze na twych ustach:
+rozważaj ją w dzień i w nocy, abyś ściśle spełniał wszystko, co w niej jest napisane,
+bo tylko wtedy powiedzie ci się i okaże się twoja roztropność.

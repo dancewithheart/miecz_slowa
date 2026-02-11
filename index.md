@@ -133,6 +133,14 @@ Potrzebujecie bowiem [wytrwałości](/hypomenes.md), abyście spełniając wolę
 [Psalm 130,5](https://biblia.deon.pl/rozdzial.php?id=963)
 W Panu pokładam [nadzieję](/elpis.md), nadzieję żywi moja dusza: oczekuję na Twe [słowo](/rhema.md).
 
+# [kontemplacja](/damam.md)
+
+[Galatów 2,20](https://biblia.deon.pl/rozdzial.php?id=1015&werset=20#W20)  
+Teraz zaś już nie ja żyję, lecz żyje we mnie Chrystus.
+
+[Jan 14,23](https://biblia.deon.pl/rozdzial.php?id=353)  
+Ojciec mój umiłuje go, i przyjdziemy do niego, i będziemy u niego przebywać.
+
 # [łaska](/charis.md)
 
 [Hebrajczyków 4,16](https://biblia.deon.pl/rozdzial.php?id=368)  

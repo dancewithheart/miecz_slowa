@@ -54,7 +54,7 @@ poniżenie i zniewagi były ich udziałem,
 przeto w swej ziemi odziedziczą wszystko w dwójnasób  
 i zażywać będą wiecznego szczęścia.   
 
-[Jan 8,7-11](https://biblia.deon.pl/rozdzial.php?id=347)  
+[Ew. Jan 8,7-11](https://biblia.deon.pl/rozdzial.php?id=347)  
 Podniósł się i rzekł do nich: «Kto z was jest bez grzechu, niech pierwszy rzuci na nią kamień». (...)
 Kiedy to usłyszeli, wszyscy jeden po drugim zaczęli odchodzić, poczynając od starszych, aż do ostatnich.
 Pozostał tylko Jezus i kobieta, stojąca na środku.

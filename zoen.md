@@ -56,5 +56,9 @@ Ponieważ drogi jesteś w moich oczach,
 nabrałeś wartości i Ja cię miłuję,  
 przeto daję ludzi za ciebie  
 i narody za [życie](/zoen.md) twoje.  
-[Nie lękaj się](/elpis.md), bo jestem z tobą.
+[Nie lękaj się](/elpis.md), bo jestem z tobą.  
+
+[Jeremiasz 10,10](https://biblia.deon.pl/rozdzial.php?id=651)  
+Pan natomiast jest prawdziwym Bogiem,  
+jest Bogiem żywym i Królem wiecznym. 
 

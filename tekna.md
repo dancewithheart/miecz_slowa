@@ -68,6 +68,8 @@ Przeraził się na ten widok Zachariasz i strach padł na niego.
 Lecz anioł rzekł do niego:  
 «Nie bój się Zachariaszu! Twoja prośba została wysłuchana: żona twoja Elżbieta urodzi ci syna, któremu nadasz imię Jan.
 
+![Zachariasz i Elżbieta dziecko](/assets/img/Zachariasz_Elzbieta_dziecko.jpg)
+
 [Psalm 113,1-9](https://biblia.deon.pl/rozdzial.php?id=946)  
 Chwalcie, słudzy Pańscy,  
 chwalcie imię Pana:  

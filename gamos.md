@@ -67,7 +67,7 @@ pogardzą nim tylko.
 [Syracha 26,1-14](https://biblia.deon.pl/rozdzial.php?id=616)  
 Szczęśliwy mąż, który ma dobrą żonę,  
 liczba dni jego będzie podwójna.  
-2 Dobra żona radować będzie męża,  
+Dobra żona radować będzie męża,  
 który osiągnie pełnię wieku w pokoju (...)  
 Dar Pana - żona spokojna
 

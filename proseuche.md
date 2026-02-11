@@ -242,7 +242,7 @@ Alleluja.
 
 ## [Szema Jisrael](https://pl.wikipedia.org/wiki/Szema_Jisrael)
 
-[Pwt 6, 4-9](https://biblia.deon.pl/rozdzial.php?id=221)
+[Powtórzonego Prawa 6, 4-9](https://biblia.deon.pl/rozdzial.php?id=221)
 Słuchaj, Izraelu, Pan jest naszym Bogiem - Panem jedynym.
 Będziesz miłował Pana, Boga twojego,
 z całego swego serca, z całej duszy swojej, ze wszystkich swych sił.
@@ -253,7 +253,7 @@ w czasie podróży,
 kładąc się spać i wstając ze snu.
 Przywiążesz je do twojej ręki jako znak. Niech one ci będą ozdobą przed oczami.
 Wypisz je na odrzwiach swojego domu i na twoich bramach.  
-[Pwt 11, 13-21](https://biblia.deon.pl/rozdzial.php?id=229)
+[Powtórzonego Prawa 11, 13-21](https://biblia.deon.pl/rozdzial.php?id=229)
 Jeśli będziecie słuchać pilnie nakazów, które wam dziś daję,
 miłując Pana, Boga waszego,
 i służąc Mu z całego serca i z całej duszy,

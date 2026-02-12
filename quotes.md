@@ -19,4 +19,4 @@ współobywatelami świętych
 i domownikami Boga. (Ef 2,18-19)
 
 Nie dał nam Bóg ducha bojaźni, ale mocy i miłości,  
-i trzeźwego myślenia. (2 Tm 1,7)
+i trzeźwego myślenia. (2 Tm 1,7)  

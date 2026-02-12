@@ -13,7 +13,7 @@ pandoc quotes.md \
   --css style.css \
   --metadata charset=utf-8 \
   --standalone \
-  --metadata title='Miecz Slowa' \
+  --metadata title='Bóg jest miłością (1 J 4,16)' \
   -o quotes.html
 
 wkhtmltoimage \
@@ -23,5 +23,5 @@ wkhtmltoimage \
 --quality 89 \
 --enable-local-file-access \
 quotes.html \
-miecz_slowa.jpg
+wallpaper.jpg
 ```

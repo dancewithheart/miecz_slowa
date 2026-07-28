@@ -408,3 +408,5 @@ Jak Ojciec Mnie [posłał](/kaleo.md), tak i Ja was posyłam.
 
 [Marek 16,15](https://biblia.deon.pl/rozdzial.php?id=315)  
 Idźcie na cały świat i głoście [Ewangelię](/euaggelion.md) wszelkiemu stworzeniu!
+
+Tapeta z cytatami [1920x1080](./wallpaper_laptop_1920x1080.jpg), [1440x3088](/wallpaper_mobile_1440x3088.jpg)

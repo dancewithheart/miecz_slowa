@@ -109,42 +109,72 @@ Bóg jest wierny / Bądź wierny
 [Mt 22,37–40](https://biblia.deon.pl/rozdzial.php?id=265#W37),
 [Mk 12,31](https://biblia.deon.pl/rozdzial.php?id=311&werset=31#W31),
 [Łk 10,27](https://biblia.deon.pl/rozdzial.php?id=325&werset=27#W27),
+[Łk 11,42](https://biblia.deon.pl/rozdzial.php?id=326#W42),
 [Rz 13,8-10](https://biblia.deon.pl/rozdzial.php?id=282&werset=8#W8),
 [Ga 5,14](https://biblia.deon.pl/rozdzial.php?id=1026),
 [Jk 2,8](https://biblia.deon.pl/rozdzial.php?id=1045&werset=8#W8),
 [J 13,34-35](https://biblia.deon.pl/rozdzial.php?id=352#W34),
+[J 15,9](https://biblia.deon.pl/rozdzial.php?id=354#W9),
+[J 17,26](https://biblia.deon.pl/rozdzial.php?id=356#W26),
 [1 J 4,7](https://biblia.deon.pl/rozdzial.php?id=991#W7)  
-Kochaj
+Kocham cię / Kochaj.
 
 [Ps 103,3](https://biblia.deon.pl/rozdzial.php?id=936),
-[Iz 1,18](https://biblia.deon.pl/rozdzial.php?id=473#W18),  
+[Iz 1,18](https://biblia.deon.pl/rozdzial.php?id=473#W18),
 [Mk 2,5](https://biblia.deon.pl/rozdzial.php?id=268#W5),
 [Łk 5,17-20](https://biblia.deon.pl/rozdzial.php?id=320#W17),
 [Mt 9,2](https://biblia.deon.pl/rozdzial.php?id=252#W2)  
 Przebaczam / Przebaczaj
 
 [J 14,27](https://biblia.deon.pl/rozdzial.php?id=353#W27),
+[J 16,33](https://biblia.deon.pl/rozdzial.php?id=355#33),
+[J 20,19](https://biblia.deon.pl/rozdzial.php?id=359#W19),
+[J 20,21](https://biblia.deon.pl/rozdzial.php?id=359#W21),
+[J 20,26](https://biblia.deon.pl/rozdzial.php?id=359#W26),
 [Mk 5,34](https://biblia.deon.pl/rozdzial.php?id=304#W34),
 [Łk 2,14](https://biblia.deon.pl/rozdzial.php?id=317#W14),
 [Łk 7,50](https://biblia.deon.pl/rozdzial.php?id=322#W50),
-[Łk 8,48](https://biblia.deon.pl/rozdzial.php?id=323#W48)
+[Łk 8,48](https://biblia.deon.pl/rozdzial.php?id=323#W48),
+[Łk 24,36](https://biblia.deon.pl/rozdzial.php?id=339#W36)  
 Pokój z tobą.
 
 [Łk 7,50](https://biblia.deon.pl/rozdzial.php?id=322#W50),
-[Łk 8,48](https://biblia.deon.pl/rozdzial.php?id=323#W48)
+[Łk 8,48](https://biblia.deon.pl/rozdzial.php?id=323#W48)  
 Twoja wiara cię ocaliła/zbawiła.
 
-[Łk 2,14](https://biblia.deon.pl/rozdzial.php?id=317#W14),
+[Łk 2,14](https://biblia.deon.pl/rozdzial.php?id=317#W14)  
 Chwała/uwielbienie dla Boga.
+
+[J 15,11](https://biblia.deon.pl/rozdzial.php?id=354#W11),
+[J 16,24](https://biblia.deon.pl/rozdzial.php?id=355#W24),
+[J 17,13](https://biblia.deon.pl/rozdzial.php?id=356#W13),
+[Mt 13,20](https://biblia.deon.pl/rozdzial.php?id=256#W20),
+[Mt 13,44](https://biblia.deon.pl/rozdzial.php?id=256#W44)  
+Radość z królestwa Boga/słowa/odnalezienia Jezusa.
+
+[Mt 5,19](https://biblia.deon.pl/rozdzial.php?id=248#W19),  
+[Mt 19,17](https://biblia.deon.pl/rozdzial.php?id=262#17),
+[Mt 22,36-40](https://biblia.deon.pl/rozdzial.php?id=265#W36),
+[Mk 12,28-34](https://biblia.deon.pl/rozdzial.php?id=311#W28),
+[J 12,49-50](https://biblia.deon.pl/rozdzial.php?id=351),
+[J 13,34-35](https://biblia.deon.pl/rozdzial.php?id=352#W34),
+[J 14,15](https://biblia.deon.pl/rozdzial.php?id=353#W15),
+[J 14,21](https://biblia.deon.pl/rozdzial.php?id=353#W21),
+[J 15,10](https://biblia.deon.pl/rozdzial.php?id=354#W10)  
+Zachowuj przykazania (najważniejsze to miłość Boga i bliźniego).
 
 ## Słownik
 
 πίστις /pistis/ wiara [strong 4102](https://biblehub.com/greek/4102.htm) ~243  
-ἀγάπη /agape/ miłość [strong 26](https://biblehub.com/greek/26.htm) ~116  
-εἰρήνη /eirene/ [strong 1515](https://biblehub.com/greek/1515.htm) ~92  
 σῴζω /sozo/ uratować, zbawić [strong 4982](https://biblehub.com/greek/4982.htm) ~108  
 σωτηρία /soteria/ zbawienie, uratowanie [strong 4991](https://biblehub.com/greek/4991.htm) ~46  
-δύναμις /dynamis/ [strong 1411](https://biblehub.com/greek/strongs_1411.htm) ~120  
+δύναμις /dynamis/ moc [strong 1411](https://biblehub.com/greek/strongs_1411.htm) ~120  
+ἀγάπη /agape/ miłość [strong 26](https://biblehub.com/greek/26.htm) ~116  
+εἰρήνη /eirene/ [strong 1515](https://biblehub.com/greek/1515.htm) ~92  
+ἀγαθός /agathos/ dobry [strong 18](https://biblehub.com/greek/18.htm) ~101  
+χαρά /chara/ radość [strong 5479](https://biblehub.com/greek/5479.htm) ~59  
+ἐντολή /entole/ przykazanie [strong 1785](https://biblehub.com/greek/1785.htm) ~67
 
-heb גְּבוּרָה /geburah/ moc, siła [strong 1369](https://biblehub.com/hebrew/1369.htm)  
-heb כֹּחַ /koach/ siła, moc [strong 3581](https://biblehub.com/hebrew/3581.htm)  
+hebr חֵסֵד /checed/ współczująca miłość, wierna miłość [strong 2617](https://biblehub.com/hebrew/2617.htm) ~247  
+hebr גְּבוּרָה /geburah/ moc, siła [strong 1369](https://biblehub.com/hebrew/1369.htm)  
+hebr כֹּחַ /koach/ siła, moc [strong 3581](https://biblehub.com/hebrew/3581.htm)  

@@ -45,12 +45,20 @@ Chwalcie Pana, bo jest dobry, bo Jego łaska na wieki.
 [Mt 22,39](https://biblia.deon.pl/rozdzial.php?id=248&werset=39#W39),
 [Mk 12,31](https://biblia.deon.pl/rozdzial.php?id=311&werset=31#W31),
 [Łk 10,27](https://biblia.deon.pl/rozdzial.php?id=325&werset=27#W27),
-[Kapłańska 19,18](https://biblia.deon.pl/rozdzial.php?id=111&werset=18#W18),
+[Kpł 19,18](https://biblia.deon.pl/rozdzial.php?id=111&werset=18#W18),
 [Rz 13,9](https://biblia.deon.pl/rozdzial.php?id=282&werset=9#W9),
 [Ga 5,14](https://biblia.deon.pl/rozdzial.php?id=1026),
 [Jk 2,8](https://biblia.deon.pl/rozdzial.php?id=1045&werset=8#W8)  
 Będziesz [miłował](/agape.md) bliźniego swego jak siebie samego.
 
+[Pwt 7,6-8](https://biblia.deon.pl/rozdzial.php?id=220#W6),
+[Iz 43,1-74](https://biblia.deon.pl/rozdzial.php?id=515#W1),
+[Iz 48,15-16](https://biblia.deon.pl/rozdzial.php?id=521#W15),
+[Iz 62,3-5](https://biblia.deon.pl/rozdzial.php?id=534#W3),
+[Mt 10,29-31](https://biblia.deon.pl/rozdzial.php?id=253#W29),
+[Łk 12,6-7](https://biblia.deon.pl/rozdzial.php?id=327#W6),
+[1 J 3,1](https://biblia.deon.pl/rozdzial.php?id=990)  
+Jesteś cenny dla Boga.
 
 [Pwt 4,35](https://biblia.deon.pl/rozdzial.php?id=223#W35),
 [Pwt 4,39](https://biblia.deon.pl/rozdzial.php?id=223#W39),
@@ -86,9 +94,9 @@ Stawiam sobie zawsze Pana przed oczy.
 
 [Rz 1,17](https://biblia.deon.pl/rozdzial.php?id=270#W17),
 [Ga 3,10-12](https://biblia.deon.pl/rozdzial.php?id=1016&werset=10#W10),
-[Hebrajczyków 10,36-38](https://biblia.deon.pl/rozdzial.php?id=374&werset=36#W36),
+[Hbr 10,36-38](https://biblia.deon.pl/rozdzial.php?id=374&werset=36#W36),
 [Ha 2,4](https://biblia.deon.pl/rozdzial.php?id=810&werset=4#W4),
-[Kapłańska 18,4-5](https://biblia.deon.pl/rozdzial.php?id=110&werset=4#W4)  
+[Kpł 18,4-5](https://biblia.deon.pl/rozdzial.php?id=110&werset=4#W4)  
 [Sprawiedliwy](/dikaiosyne.md) z wiary [żyć](/zoen.md) będzie.
 
 
@@ -156,7 +164,7 @@ Bóg jest wierny / Bądź wierny
 
 
 [Pwt 6,5](https://biblia.deon.pl/rozdzial.php?id=221#W5),
-[Kapłańska 19,18](https://biblia.deon.pl/rozdzial.php?id=111&werset=18#W18),
+[Kpł 19,18](https://biblia.deon.pl/rozdzial.php?id=111&werset=18#W18),
 [Mt 5,43](https://biblia.deon.pl/rozdzial.php?id=248&werset=43#W43),
 [Mt 19,19](https://biblia.deon.pl/rozdzial.php?id=262&werset=19#W19),
 [Mt 22,37–40](https://biblia.deon.pl/rozdzial.php?id=265#W37),

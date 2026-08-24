@@ -1,5 +1,24 @@
 # Powtarzające się stwierdzenia
 
+
+[Ps 136,1](https://biblia.deon.pl/rozdzial.php?id=969#W1),
+[Ps 136,2-34](https://biblia.deon.pl/rozdzial.php?id=969#W2),
+[Ps 100,5](https://biblia.deon.pl/rozdzial.php?id=933&werset=5#W5),
+[Ps 106,1](https://biblia.deon.pl/rozdzial.php?id=939&werset=1#W1),
+[Ps 107,1](https://biblia.deon.pl/rozdzial.php?id=940&werset=1#W1),
+[Ps 118,1-4](https://biblia.deon.pl/rozdzial.php?id=951&werset=1#W1),
+[Ps 118,29](https://biblia.deon.pl/rozdzial.php?id=951&werset=1#W29),
+[Ps 145,9](https://biblia.deon.pl/rozdzial.php?id=978#W9),
+[Jr 33,11](https://biblia.deon.pl/rozdzial.php?id=674&werset=11#W11),
+[1 Krn 16,34](https://biblia.deon.pl/rozdzial.php?id=1280#W34),
+[1 Krn 16,41](https://biblia.deon.pl/rozdzial.php?id=1280#W41),
+[2 Krn 5,13](https://biblia.deon.pl/rozdzial.php?id=1327#W13),
+[2 Krn 7,3](https://biblia.deon.pl/rozdzial.php?id=1313#W3),
+[2 Krn 7,6](https://biblia.deon.pl/rozdzial.php?id=1313#W6),
+[2 Krn 20,21](https://biblia.deon.pl/rozdzial.php?id=1308#W21),
+[Ezd 3,11](https://biblia.deon.pl/rozdzial.php?id=1330#W11)  
+Chwalcie Pana, bo jest dobry, bo Jego łaska na wieki.
+
 [Na 1,7](https://biblia.deon.pl/rozdzial.php?id=806#W7),
 [Lm 3,25](https://biblia.deon.pl/rozdzial.php?id=696#W25),
 [Ps 136,1](https://biblia.deon.pl/rozdzial.php?id=969#W1),
@@ -20,25 +39,19 @@
 [Ezd 3,11](https://biblia.deon.pl/rozdzial.php?id=1330#W11)  
 Bóg jest dobry.
 
-
-[Ps 136,1](https://biblia.deon.pl/rozdzial.php?id=969#W1),
-[Ps 136,2-34](https://biblia.deon.pl/rozdzial.php?id=969#W2),
-[Ps 100,5](https://biblia.deon.pl/rozdzial.php?id=933&werset=5#W5),
-[Ps 106,1](https://biblia.deon.pl/rozdzial.php?id=939&werset=1#W1),
-[Ps 107,1](https://biblia.deon.pl/rozdzial.php?id=940&werset=1#W1),
-[Ps 118,1-4](https://biblia.deon.pl/rozdzial.php?id=951&werset=1#W1),
-[Ps 118,29](https://biblia.deon.pl/rozdzial.php?id=951&werset=1#W29),
-[Ps 145,9](https://biblia.deon.pl/rozdzial.php?id=978#W9),
-[Jr 33,11](https://biblia.deon.pl/rozdzial.php?id=674&werset=11#W11),
-[1 Krn 16,34](https://biblia.deon.pl/rozdzial.php?id=1280#W34),
-[1 Krn 16,41](https://biblia.deon.pl/rozdzial.php?id=1280#W41),
-[2 Krn 5,13](https://biblia.deon.pl/rozdzial.php?id=1327#W13),
-[2 Krn 7,3](https://biblia.deon.pl/rozdzial.php?id=1313#W3),
-[2 Krn 7,6](https://biblia.deon.pl/rozdzial.php?id=1313#W6),
-[2 Krn 20,21](https://biblia.deon.pl/rozdzial.php?id=1308#W21),
-[Ezd 3,11](https://biblia.deon.pl/rozdzial.php?id=1330#W11)  
-Chwalcie Pana, bo jest dobry, bo Jego łaska na wieki.
-
+[Ps 18,2-4](https://biblia.deon.pl/rozdzial.php?id=851#W2),
+[Ps 27,1](https://biblia.deon.pl/rozdzial.php?id=860#W1),
+[Ps 31,3-6](https://biblia.deon.pl/rozdzial.php?id=864#W3),
+[Ps 46,2](https://biblia.deon.pl/rozdzial.php?id=879#W2),
+[Ps 62,2-9](https://biblia.deon.pl/rozdzial.php?id=895#W2),
+[Ps 71,1-7](https://biblia.deon.pl/rozdzial.php?id=904),
+[Ps 91,1-4](https://biblia.deon.pl/rozdzial.php?id=924),
+[Ps 118,5-8](https://biblia.deon.pl/rozdzial.php?id=951),
+[Ps 144,1-2](https://biblia.deon.pl/rozdzial.php?id=977),
+[Iz 12,2](https://biblia.deon.pl/rozdzial.php?id=484#W2),
+[Mi 7,7](https://biblia.deon.pl/rozdzial.php?id=805#W7),
+[Syr 51,1-12](https://biblia.deon.pl/rozdzial.php?id=641)  
+Bóg jest moim ratunkiem/zbawieniem/twierdzą.
 
 [Mt 5,43](https://biblia.deon.pl/rozdzial.php?id=248&werset=43#W43),
 [Mt 19,19](https://biblia.deon.pl/rozdzial.php?id=262&werset=19#W19),
@@ -80,7 +93,6 @@ Jesteś cenny dla Boga.
 [Jk 2,19](https://biblia.deon.pl/rozdzial.php?id=1045#W19)  
 Jest jeden Bóg.
 
-
 [Ps 16,8](https://biblia.deon.pl/rozdzial.php?id=849),
 [Dz 2,25](https://biblia.deon.pl/rozdzial.php?id=379#25),
 [Hebr 12,2](https://biblia.deon.pl/rozdzial.php?id=376#W2),
@@ -91,7 +103,6 @@ Jest jeden Bóg.
 [Ps 141,8](https://biblia.deon.pl/rozdzial.php?id=974)  
 Stawiam sobie zawsze Pana przed oczy.
 
-
 [Rz 1,17](https://biblia.deon.pl/rozdzial.php?id=270#W17),
 [Ga 3,10-12](https://biblia.deon.pl/rozdzial.php?id=1016&werset=10#W10),
 [Hbr 10,36-38](https://biblia.deon.pl/rozdzial.php?id=374&werset=36#W36),
@@ -99,24 +110,42 @@ Stawiam sobie zawsze Pana przed oczy.
 [Kpł 18,4-5](https://biblia.deon.pl/rozdzial.php?id=110&werset=4#W4)  
 [Sprawiedliwy](/dikaiosyne.md) z wiary [żyć](/zoen.md) będzie.
 
-
 [Mt 4,10](https://biblia.deon.pl/rozdzial.php?id=247#W10),
 [Łk 2,14](https://biblia.deon.pl/rozdzial.php?id=317#W14),
 [Mt 6,13](https://biblia.oblubienica.eu/interlinearny/index/book/1/chapter/6/verse/13)  
 Chwała/uwielbienie dla Boga.
 
+[Kpł 11,44](https://biblia.deon.pl/rozdzial.php?id=92#W44),
+[Kpł 11,45](https://biblia.deon.pl/rozdzial.php?id=92#W45),
+[Kpł 19,2](https://biblia.deon.pl/rozdzial.php?id=111#W2),
+[Kpł 20,7](https://biblia.deon.pl/rozdzial.php?id=112#W7),
+[Kpł 20,26](https://biblia.deon.pl/rozdzial.php?id=112#W26),
+[Kpł 21,8](https://biblia.deon.pl/rozdzial.php?id=113#W8)  
+Bądż święty, bo Bóg jest święty.
 
 ## Najczęstrze słowa Boga do ludzi
 
 [Rdz 15,1](https://biblia.deon.pl/rozdzial.php?id=15),
 [Iz 41,10,13-14](https://biblia.deon.pl/rozdzial.php?id=513#W10),
 [Łk 1,13](https://biblia.deon.pl/rozdzial.php?id=316#W13),
+[Mt 1,20](https://biblia.deon.pl/rozdzial.php?id=244#W20),
 [Mt 10,26](https://biblia.deon.pl/rozdzial.php?id=253#W26),
+[Mt 10,28-31](https://biblia.deon.pl/rozdzial.php?id=253#W28),
+[Mt 17,7](https://biblia.deon.pl/rozdzial.php?id=260#W7),
+[Mt 28,10](https://biblia.deon.pl/rozdzial.php?id=364#W10),
+[Mk 6,50](https://biblia.deon.pl/rozdzial.php?id=305#50),
+[Łk 1,13](https://biblia.deon.pl/rozdzial.php?id=316#W13),
+[Łk 1,30](https://biblia.deon.pl/rozdzial.php?id=316#W30),
+[Łk 2,10](https://biblia.deon.pl/rozdzial.php?id=317#W10),
+[Łk 5,10](https://biblia.deon.pl/rozdzial.php?id=320#W10),
+[Łk 8,50](https://biblia.deon.pl/rozdzial.php?id=323#W50),
+[Łk 12,4](https://biblia.deon.pl/rozdzial.php?id=327#W4),
+[Łk 12,7](https://biblia.deon.pl/rozdzial.php?id=327#W7),
 [Łk 12,32](https://biblia.deon.pl/rozdzial.php?id=327#W32),
+[J 6,20](https://biblia.deon.pl/rozdzial.php?id=345#W20),
 [J 14,27](https://biblia.deon.pl/rozdzial.php?id=353#W27),
 [Ap 1,17](https://biblia.deon.pl/rozdzial.php?id=406#W17)  
 Nie bój się. 
-
 
 [Wj 3,12](https://biblia.deon.pl/rozdzial.php?id=53#W12),
 [Joz 1,5](https://biblia.deon.pl/rozdzial.php?id=1113#W5),
@@ -130,7 +159,6 @@ Nie bój się.
 [1 Kor 3,16](https://biblia.deon.pl/rozdzial.php?id=288#W16)  
 Jestem z tobą.
 
-
 [Iz 45,22](https://biblia.deon.pl/rozdzial.php?id=517#W22),
 [Iz 55,7](https://biblia.deon.pl/rozdzial.php?id=527#W7),
 [Ez 18,30](https://biblia.deon.pl/rozdzial.php?id=722#W30),
@@ -140,7 +168,6 @@ Jestem z tobą.
 [Dz 2,38](https://biblia.deon.pl/rozdzial.php?id=780#W2),
 [Ap 2,2-5](https://biblia.deon.pl/rozdzial.php?id=1090#W2)   
 Zmień myślenie / Nawróć się
-
 
 [Prz 3,5](https://biblia.deon.pl/rozdzial.php?id=541#W5),
 [Ps 37,5](https://biblia.deon.pl/rozdzial.php?id=870),
@@ -156,12 +183,10 @@ Zmień myślenie / Nawróć się
 [Hbr 11,6](https://biblia.deon.pl/rozdzial.php?id=375#6)  
 Wierz / zaufaj
 
-
 [Pwt 7,9](https://biblia.deon.pl/rozdzial.php?id=220#W9),
 [Ps 89,2](https://biblia.deon.pl/rozdzial.php?id=922#W2),
 [Ap 2,10](https://biblia.deon.pl/rozdzial.php?id=1090#W10)  
 Bóg jest wierny / Bądź wierny
-
 
 [Pwt 6,5](https://biblia.deon.pl/rozdzial.php?id=221#W5),
 [Kpł 19,18](https://biblia.deon.pl/rozdzial.php?id=111&werset=18#W18),
@@ -180,14 +205,12 @@ Bóg jest wierny / Bądź wierny
 [1 J 4,7](https://biblia.deon.pl/rozdzial.php?id=991#W7)  
 Kocham cię / Kochaj.
 
-
 [Ps 103,3](https://biblia.deon.pl/rozdzial.php?id=936),
 [Iz 1,18](https://biblia.deon.pl/rozdzial.php?id=473#W18),
 [Mk 2,5](https://biblia.deon.pl/rozdzial.php?id=268#W5),
 [Łk 5,17-20](https://biblia.deon.pl/rozdzial.php?id=320#W17),
 [Mt 9,2](https://biblia.deon.pl/rozdzial.php?id=252#W2)  
 Przebaczam / Przebaczaj
-
 
 [J 14,27](https://biblia.deon.pl/rozdzial.php?id=353#W27),
 [J 16,33](https://biblia.deon.pl/rozdzial.php?id=355#33),
@@ -201,11 +224,9 @@ Przebaczam / Przebaczaj
 [Łk 24,36](https://biblia.deon.pl/rozdzial.php?id=339#W36)  
 Pokój z tobą.
 
-
 [Łk 7,50](https://biblia.deon.pl/rozdzial.php?id=322#W50),
 [Łk 8,48](https://biblia.deon.pl/rozdzial.php?id=323#W48)  
 Twoja wiara cię ocaliła/zbawiła.
-
 
 [J 15,11](https://biblia.deon.pl/rozdzial.php?id=354#W11),
 [J 16,24](https://biblia.deon.pl/rozdzial.php?id=355#W24),
@@ -213,7 +234,6 @@ Twoja wiara cię ocaliła/zbawiła.
 [Mt 13,20](https://biblia.deon.pl/rozdzial.php?id=256#W20),
 [Mt 13,44](https://biblia.deon.pl/rozdzial.php?id=256#W44)  
 Radość z królestwa Boga/słowa/odnalezienia Jezusa.
-
 
 [Mt 5,19](https://biblia.deon.pl/rozdzial.php?id=248#W19),
 [Mt 19,17](https://biblia.deon.pl/rozdzial.php?id=262#17),
